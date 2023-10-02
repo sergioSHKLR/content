@@ -2062,7 +2062,7 @@ Nota: Apenas pronunciadas as primeiras palavras sobre o assunto, o Espírito res
 
 > 👻 ▸ Ah! sei, meu amigo, e sei, por que tanto vos via ontem como hoje... que grande é a minha alegria! Obrigado! Obrigado! Falai... falai para que me compreendam e vos estimem; nada tendes que temer, pois que se respeita a morte... falai, pois, para que os incrédulos tenham fé. Adeus; falai; coragem, confiança, e oxalá meus filhos possam converter-se a uma crença sacrossanta.
 >
->**J. Sanson**
+> **J. Sanson**
 
 Durante a cerimônia do cemitério, ele ditou as palavras seguintes: “Não vos atemorize a morte, meus amigos: ela é um estágio da vida, se bem souberdes viver; é uma felicidade, se bem a merecerdes e melhor cumprirdes as vossas provações. Repito: coragem e boa vontade! Não deis mais que medíocre valor aos bens terrenos, e sereis recompensados. Não se pode muito gozar, sem tirar de outrem o bem-estar e sem fazer moralmente um grande, um imenso mal. A terra me seja leve.”
 
@@ -2174,7 +2174,7 @@ Em seguida à primeira evocação do Sr. Sanson, feita na Sociedade de Paris, um
 >
 > Orai por essas almas perturbadas; orai por todos os sofredores, que a caridade não se restringe à humanidade visível, mas deve socorrer e consolar os habitantes do Espaço. Disso tivestes a prova evidente na súbita conversão desse Espírito [^58] tocado pelas preces espíritas sobre o túmulo do homem de bem que vindes interrogar e que deseja fazer-vos progredir no bom caminho. O amor não tem limites; enche o Espaço e dá e recebe mutuamente as suas divinas consolações. Também o mar se desenrola numa perspectiva infinita, cujo espetáculo deslumbra o espírito, parecendo-lhe confundir-se o mar no seu limite com os céus. São duas grandezas que se extremam. Pois bem; assim é o amor; mais profundo que as ondas, mais infinito que o Espaço, a todos vós, encarnados e desencarnados, deve unir na santa comunhão da caridade, fusão sublime do finito e do eterno.  
 >
-> Georges
+> **Georges**
 
 #### 02. Jobard  
 
@@ -2186,7 +2186,7 @@ O Sr. Jobard era presidente honorário da Sociedade Espírita de Paris e tratava
 >
 > Quereis saber que Espíritos me receberam? quais as minhas impressões? pois bem, amigos, foram todos os que evocamos, todos os irmãos que compartilharam dos nossos trabalhos. Eu vi o esplendor, mas não posso descrevê-lo. Apliquei-me a discernir o que era verdadeiro nas comunicações, pronto a contraditar tudo que fosse errôneo, pronto a ser o cavaleiro andante da verdade neste mundo, tal como o fui no vosso.  
 >
-> Jobard
+> **Jobard**
 
 ##### 01
 
@@ -2274,11 +2274,15 @@ Passados os primeiros tempos consagrados ao alento dos seus amigos, o Sr. Jobard
 
 Trabalhos, fadigas, sacrifícios, nada o impedia de ser útil, e isto sem ostentação, admirando-se quando se lhe atribuía por estes predicados um grande mérito. Jamais desprezou os que lhe fizeram mal; antes se dava pressa em servi-los como se bem semelhante lhe houvessem feito. Tratando-se de ingratos, dizia: — Não é a mim, porém a eles que se deve lastimar. Posto que muito inteligente e dotado de natural vivacidade, teve na Terra uma vida obscura, laboriosa e bordada de rudes provações. Podia-se comparar a essas naturezas de escol que vivem na sombra, das quais o mundo não fala e cujo brilho não se reflete na Terra. Haurira no conhecimento do Espiritismo uma fé ardente na vida futura e uma grande resignação para todos os males da existência terrena. Finalmente, faleceu em dezembro de 1862, na idade de 50 anos, de moléstia atroz, sendo o seu passamento muito sensível à família e aos amigos. Evocamo-lo alguns meses depois do trespasse.  
 
-— P. Tendes uma recordação nítida dos últimos instantes da vida na Terra?
+
+
+- Tendes uma recordação nítida dos últimos instantes da vida na Terra?
 
 > 👻 ▸ Perfeitamente, conquanto essa recordação reaparecesse gradualmente. No instante preciso do desprendimento eram confusas as minhas ideias.
 
-— P. Quereríeis, a bem da nossa instrução e do interesse que nos mereceis pela vossa vida exemplar, descrever como ocorreu o vosso trespasse da vida corporal para a espiritual?
+
+
+- Quereríeis, a bem da nossa instrução e do interesse que nos mereceis pela vossa vida exemplar, descrever como ocorreu o vosso trespasse da vida corporal para a espiritual?
 
 > 👻 ▸ De bom grado, tanto mais quanto a narrativa não aproveitará somente a vós, mas a mim próprio, por isso que, dirigindo o meu pensamento para a Terra, a comparação faz-me apreciar melhor a bondade do Criador. Sabeis que de tribulações provei na vida; entretanto, jamais me faltou coragem na adversidade, graças a Deus! E hoje felicito-me! Quanta coisa perderia se houvesse desanimado! E ainda tremo ao pensar que tudo quanto sofri se anularia caso desfalecesse, tendo de recomeçar novamente as provações! Ó meus amigos, compenetrai-vos firmemente desta verdade, pois nela reside a felicidade do vosso futuro. Não é, por certo, comprar muito caro essa felicidade por alguns anos de sofrimento! Ah! Se soubésseis o que são alguns anos comparados ao infinito! Se de fato a minha última existência teve algum mérito aos vossos olhos, outro tanto não diríeis das que a precederam. E não foi senão à força de trabalho sobre mim mesmo, que me tornei o que ora sou. Para apagar os últimos traços das faltas anteriores, era-me preciso sofrer as últimas provas que voluntariamente aceitei. Foi na firmeza das minhas resoluções que escudei a resignação, a fim de sofrer sem me queixar. Hoje abençoo essas provações, pois a elas devo o ter rompido com o passado — simples recordação agora que me permite contemplar com legítima alegria o caminho percorrido.  
 >
@@ -2302,7 +2306,9 @@ Trabalhos, fadigas, sacrifícios, nada o impedia de ser útil, e isto sem ostent
 >
 > “Quem deixaria então, na Terra, de prover e assegurar-se da felicidade que Deus reserva aos filhos dóceis e submissos? Gozos ambicionados, invejados, tornar-se-iam mesquinhos em relação aos que eles negligenciam!”
 
-— P. Esse mundo tão novo e comparado ao qual nada vale o nosso, bem como os numerosos amigos que nele reencontrastes, fizeram-vos esquecer a família e amigos encarnados?
+
+
+- Esse mundo tão novo e comparado ao qual nada vale o nosso, bem como os numerosos amigos que nele reencontrastes, fizeram-vos esquecer a família e amigos encarnados?
 
 > 👻 ▸ Se os tivesse esquecido seria indigno da felicidade de que gozo. Deus não recompensa o egoísmo, pune-o.  
 >
@@ -2318,14 +2324,249 @@ Antigo funcionário, falecido em Antuérpia, em 1863, aos 80 anos.
 
 Pouco depois do seu decesso, tendo um médium perguntado ao seu guia se poderia evocá-lo, responderam-lhe:  
 
-> “Este Espírito lentamente se refaz da sua perturbação, e, conquanto possa responder-vos imediatamente, muitas mágoas lhe custaria tal comunicação. Peço-vos espereis ainda uns quatro dias, pois até lá ele saberá das boas intenções manifestadas a seu respeito, e a elas corresponderá amistosa e gratamente.”  
+> 👻 ▸ “Este Espírito lentamente se refaz da sua perturbação, e, conquanto possa responder-vos imediatamente, muitas mágoas lhe custaria tal comunicação. Peço-vos espereis ainda uns quatro dias, pois até lá ele saberá das boas intenções manifestadas a seu respeito, e a elas corresponderá amistosa e gratamente.”  
 
 Decorridos os quatro dias recebemos a comunicação seguinte:  
 
-> “Meu amigo, bem leve na balança da eternidade foi o fardo da minha existência, e no entanto bem longe estou de ser feliz. A minha condição humilde e relativamente ditosa é de quem não fez o mal, sem que por isso visasse à perfeição. E se pode haver pessoas felizes numa esfera limitada, eu sou desse número. O que sinto é não ter conhecido o que ora conheceis, porque a minha perturbação não se prolongaria por tanto tempo, seria menos dolorosa. De fato, ela foi grande; viver e não viver, estar rudemente preso ao corpo sem poder servir-se dele, ver os que nos foram caros, sentindo extinguir-se o pensamento que a eles nos prende, oh! que coisa horrível! Que momento cruel esse em que o aturdimento nos empolga e constrange, para desfazer-se em trevas logo após! Sentir tudo, para estar um momento depois aniquilado! Quer-se ter a consciência do seu eu, sem encontrá-la; não existir, e sentir que se existe! Perturbação profunda! Depois, transcorrido um tempo incalculável de angústias contidas, sem forças para senti-las, depois, digo, desse tempo que parece interminável — o renascimento gradual da vida, o despertar de uma nova aurora em outro mundo! Nada de corpo material nem de vida terrestre! Vida, sim, mas imortal! Não mais homens carnais, porém formas diáfanas, Espíritos que deslizam, que surgem de todos os lados, que vos cercam e que não podeis abranger com a vista, porque é no infinito que flutuam! Ter ante si o Espaço e poder franqueá-lo à vontade! Comunicar-se pelo pensamento com tudo que vos envolve! Que vida nova, meu amigo, nova, brilhante e cheia de ventura! Salve, oh! salve, eternidade que me conténs em teu seio! Adeus, Terra que por tanto tempo me retiveste afastado do elemento natural da minha alma! Não... eu nada mais de ti queria, porque és a terra do exílio, e a maior das felicidades que dispensas nada vale! Soubesse eu o que sabeis, e quão fácil e agradável me seria a iniciação na vida espiritual! Sim, porque saberia, antes de morrer, o que mais tarde somente deveria conhecer, no momento da separação, de forma a desprender-me facilmente. Estais vós outros no caminho, porém, certificai-vos de que todo o adiantamento é pouco. Dizei-o a meu filho tantas vezes quantas bastem para que se instrua e creia, porque, do contrário, a nossa separação continuará aqui. Amigos, adeus a todos vós; espero-vos, e, enquanto estiverdes na Terra, virei muitas vezes instruir-me convosco, visto como sei menos ainda que muitos dentre vós. Notai que aqui onde estou, sem velhice que me enfraqueça nem entraves de qualquer espécie, aprenderei mais depressa e facilmente. Aqui se vive às claras, caminhando com desassombro, tendo ante os olhos horizontes tão belos que a gente se torna impaciente por abrangê-los. Adeus, deixo-vos, adeus.” Van Durst
-#### CEU-2-02-05
+> 👻 ▸ “Meu amigo, bem leve na balança da eternidade foi o fardo da minha existência, e no entanto bem longe estou de ser feliz. A minha condição humilde e relativamente ditosa é de quem não fez o mal, sem que por isso visasse à perfeição. E se pode haver pessoas felizes numa esfera limitada, eu sou desse número. O que sinto é não ter conhecido o que ora conheceis, porque a minha perturbação não se prolongaria por tanto tempo, seria menos dolorosa.  
+>
+> De fato, ela foi grande; viver e não viver, estar rudemente preso ao corpo sem poder servir-se dele, ver os que nos foram caros, sentindo extinguir-se o pensamento que a eles nos prende, oh! que coisa horrível! Que momento cruel esse em que o aturdimento nos empolga e constrange, para desfazer-se em trevas logo após! Sentir tudo, para estar um momento depois aniquilado! Quer-se ter a consciência do seu eu, sem encontrá-la; não existir, e sentir que se existe!  
+> 
+> Perturbação profunda! Depois, transcorrido um tempo incalculável de angústias contidas, sem forças para senti-las, depois, digo, desse tempo que parece interminável — o renascimento gradual da vida, o despertar de uma nova aurora em outro mundo! Nada de corpo material nem de vida terrestre! Vida, sim, mas imortal! Não mais homens carnais, porém formas diáfanas, Espíritos que deslizam, que surgem de todos os lados, que vos cercam e que não podeis abranger com a vista, porque é no infinito que flutuam! Ter ante si o Espaço e poder franqueá-lo à vontade! Comunicar-se pelo pensamento com tudo que vos envolve! Que vida nova, meu amigo, nova, brilhante e cheia de ventura! Salve, oh! salve, eternidade que me conténs em teu seio! Adeus, Terra que por tanto tempo me retiveste afastado do elemento natural da minha alma! Não... eu nada mais de ti queria, porque és a terra do exílio, e a maior das felicidades que dispensas nada vale! Soubesse eu o que sabeis, e quão fácil e agradável me seria a iniciação na vida espiritual! Sim, porque saberia, antes de morrer, o que mais tarde somente deveria conhecer, no momento da separação, de forma a desprender-me facilmente. Estais vós outros no caminho, porém, certificai-vos de que todo o adiantamento é pouco. Dizei-o a meu filho tantas vezes quantas bastem para que se instrua e creia, porque, do contrário, a nossa separação continuará aqui.  
+>
+> Amigos, adeus a todos vós; espero-vos, e, enquanto estiverdes na Terra, virei muitas vezes instruir-me convosco, visto como sei menos ainda que muitos dentre vós. Notai que aqui onde estou, sem velhice que me enfraqueça nem entraves de qualquer espécie, aprenderei mais depressa e facilmente. Aqui se vive às claras, caminhando com desassombro, tendo ante os olhos horizontes tão belos que a gente se torna impaciente por abrangê-los. Adeus, deixo-vos, adeus.”
+>
+> **Van Durst**
 
-#### CEU-2-02-06
+#### 05. Sixdeniers
+
+Homem de bem, morto por acidente e conhecido do médium, quando encarnado. (Bordeaux, 11 de fevereiro de 1861.)
+
+
+
+- Podeis dar-nos quaisquer detalhes sobre a vossa morte?
+
+> 👻 ▸ Depois de afogar-me, sim. 
+
+- E por que não antes?
+
+> 👻 ▸ Porque já os conheceis. (O médium conhecia-os, efetivamente.) 
+
+- Quereis então descrever as vossas sensações depois da morte?
+
+> 👻 ▸ Permaneci muito tempo sem me reconhecer, mas com a graça de Deus e o auxílio dos que me cercavam, quando a luz se fez, inundou-me. Confiai, e encontrareis sempre mais do que esperardes. Nada existe aqui de material; tudo fere os sentidos ocultos sem auxílio da vista ou do tato: compreendeis? É uma admiração espiritual que ultrapassa o vosso entendimento, porque não há palavras que a expliquem. Só a alma pode percebê-la. Bem feliz foi o meu despertar. A vida é um desses sonhos, que, apesar da ideia grosseira que se lhe atribui, só pode ser qualificada de medonho pesadelo. Imaginai que estais encerrado em calabouço infecto onde o vosso corpo, corroído pelos vermes até a medula dos ossos, se suspende por sobre ardente fornalha; que a vossa ressequida boca não encontra sequer o ar para refrescá-la; que o vosso Espírito aterrorizado só vê ao seu redor monstros prestes a devorá-lo; figurai-vos enfim tudo quanto um sonho fantástico pode engendrar de hediondo, de mais terrível, e transportai-vos depois e repentinamente a delicioso Éden. Despertai cercado de todos os que amastes e chorastes; vede, rodeando-vos, semblantes adorados a sorrirem de felicidade; respirai os mais suaves perfumes; desalterai a ressequida garganta na fonte de água viva; senti o corpo pairando no Espaço infinito que o suporta e baloiça, qual a flor que da fronde se destaca aos impulsos da brisa; julgai-vos envolto no amor de Deus qual recém-nascidos no materno amor e tereis uma ideia, aliás apenas imperfeita, dessa transição. Procurei explicar-vos a felicidade da vida que aguarda o homem depois da morte do corpo e não pude. Será possível explicar o infinito àquele que tem os olhos fechados à luz e que não pode sair do estreito círculo que o encerra? Para explicar-vos a eterna felicidade, dir-vos-ei apenas: amai, pois só o amor faculta o pressenti-la, e quem diz amor diz ausência de egoísmo. 
+
+- A vossa posição foi feliz desde logo que entrastes no mundo dos Espíritos?
+
+> 👻 ▸ Não; tive de pagar a dívida humana. Meu coração pressentira o futuro do Espírito, mas faltava-me a fé. Tive que expiar a indiferença para com o meu Criador, porém a sua misericórdia levou-me em conta o bem insignificante que pude fazer, as dores que resignado padeci, apesar dos sofrimentos, e a sua justiça, cuja balança os homens jamais compreenderão, tão benévola e amorosamente pesou o bem, que o mal depressa se extinguiu. 
+
+- Podereis dar-me notícias da vossa filha? (morta quatro ou cinco anos antes.)
+
+> 👻 ▸ Está em missão aí na Terra. 
+
+- Ela é feliz como encarnada? Notai que não quero fazer perguntas indiscretas.
+
+> 👻 ▸ Sei. Ou eu não veria o vosso pensamento como um quadro ante meus olhos. Minha filha não é feliz, encarnada, pelo contrário, deverá provar todas as misérias terrenas, pregando pelo exemplo as grandes virtudes de que fazeis simples vocábulos retumbantes. Ajudá-la-ei, no entanto, certo de que lhe não será penoso superar os obstáculos, pois está na Terra em missão, e não em expiação. Tranquilizai-vos por ela, e obrigado pela lembrança. Neste comenos, experimentando dificuldades em escrever, diz o médium: — Se é um Espírito sofredor que mo impede, peço-lhe que escreva seu nome.
+
+> 👻 ▸ Uma infeliz. 
+
+- Queira dizer-me o seu nome.
+
+> 👻 ▸ Valéria. 
+
+- Podereis dizer-me o motivo do vosso sofrimento?
+
+> 👻 ▸ Não. 
+
+- Estais arrependida dos vossos erros?
+
+> 👻 ▸ Podes julgá-lo. 
+
+- Quem vos trouxe aqui?
+
+> 👻 ▸ Sixdeniers. 
+
+- Com que fito?
+
+> 👻 ▸ De me ajudares. 
+
+- E fostes vós que ainda há pouco me impedistes de escrever?
+
+> 👻 ▸ Sixdeniers me colocou em seu lugar. 
+
+- Que relação há entre vós e ele?
+
+> 👻 ▸ Guia-me. 
+
+- Pedi-lhe que nos acompanhasse na prece. (Depois da prece, Sixdeniers retoma a palavra, dizendo: — Obrigado por ela. Já compreendestes; não vos esquecerei; pensai nela.) 
+
+- (A Sixdeniers.) Tendes muitos Espíritos sofredores a guiar?
+
+> 👻 ▸ Não; entretanto, regenerando algum, buscamos logo outro e assim por diante, sem abandonar os primeiros. 
+
+- Como podeis prover uma vigilância que deverá multiplicar-se ao infinito no decurso dos séculos?
+
+> 👻 ▸ Os que regeneramos purificam-se e progridem sem que por isso nos deem maior cuidado; além disso, também nos vamos elevando, e, à proporção que subimos, as faculdades, como os poderes, se dilatam, na razão direta da nossa pureza.  
+
+📝 **Nota**. Os Espíritos inferiores, pelo que vemos, são assistidos por bons Espíritos com a missão de os guiar, tarefa esta que não é exclusivamente delegada aos encarnados, os quais nem por isso ficam desobrigados de auxiliá-la, uma vez que também isso constitui para eles meio de progresso. Nem sempre com boa intenção um Espírito inferior vem interromper boas comunicações, mas é certo que o fazem algumas vezes, como no caso presente, com a permissão dos bons Espíritos, seja como prova, seja com o intuito de obter daquele a quem se dirige o auxílio necessário ao seu progresso. É fato que a persistência, em tais casos, pode degenerar em obsessão, porém, quanto maior for a tenacidade, tanto mais provará a necessidade de assistência. É um erro e um mal repelirmos tais Espíritos, que devemos encarar quais mendigos a pedirem esmola. Digamos antes: É um Espírito infeliz que os bons me enviam para educar. Conseguindo-o, restar-nos-á toda a alegria decorrente de uma boa ação, e nenhuma melhor que a de regenerar uma alma, aliviando-lhe os sofrimentos. Penosa é muitas vezes essa tarefa e melhor fora, por certo, receber continuamente belas comunicações, conversar com Espíritos escolhidos; mas não é buscando a nossa própria satisfação, nem repudiando as ocasiões que se nos oferecem para praticar o bem, que havemos de atrair a proteção dos bons Espíritos.  
+
+#### 06. O doutor Demeure
+
+Falecido em Albi (Tarn) a 25 de janeiro de 1865.  
+
+Era um médico homeopata e distintíssimo. Seu caráter, tanto quanto o saber, haviam-lhe granjeado a estima e veneração dos seus concidadãos. Eram-lhe inextinguíveis a bondade e a caridade, e, a despeito da idade avançada, não se lhe conheciam fadigas, se tratando de socorrer doentes pobres. O preço das visitas era o que menos o preocupava, e de preferência sacrificava as suas comodidades ao pobre, dizendo que os ricos, em sua falta, bem podiam recorrer a outro médico. E quantas e quantas vezes ao doente sem recursos provia do necessário às exigências materiais, no caso de serem mais úteis que o próprio medicamento. Dele pode dizer-se que era o Cura d’Ars da Medicina. Encontrando, na Doutrina Espírita, a chave de problemas cuja solução debalde pedira à Ciência como a todas as filosofias, o Dr. Demeure abraçara com ardor essa doutrina. Pela profundeza do seu espírito investigador compreendeu-lhe subitamente todo o alcance, de maneira a tornar-se um dos seus mais solícitos propagadores.  
+
+Relações de mútua e viva simpatia se haviam estabelecido entre nós, correspondendo-nos. Soubemos do seu decesso a 30 de janeiro, sendo que o nosso imediato desejo foi evocá-lo. Em seguida reproduzimos a comunicação obtida no mesmo dia:  
+
+> 👻 ▸ Aqui estou. Ainda vivo, assumi o compromisso de manifestar-me desde que me fosse possível, apertando a mão do meu caro mestre e amigo Allan Kardec.  
+>
+> A morte emprestara à minha alma esse pesado sono a que se chama letargia, porém, o meu pensamento velava. Sacudi o torpor funesto da perturbação consequente à morte, levantei-me e de um salto fiz a viagem. Como sou feliz! Não mais velho nem enfermo. O corpo, esse, era apenas um disfarce. Jovem e belo, dessa beleza eternamente juvenil dos Espíritos, cujos cabelos não encanecem sob a ação do tempo.  
+>
+> Ágil como o pássaro que cruza célere os horizontes do vosso céu nebuloso, admiro, contemplo, bendigo, amo e curvo-me, átomo que sou, ante a grandeza e sabedoria do Criador, sintetizadas nas maravilhas que me cercam. Feliz! feliz na glória! Oh! quem poderá jamais traduzir a esplêndida beleza da mansão dos eleitos; os céus, os mundos, os sóis e seu concurso na harmonia do universo? Pois bem: eu ensaiarei fazê-lo, ó meu mestre; vou estudar, e virei trazer-vos o resultado dos meus trabalhos de Espírito e que de antemão, como homenagem, eu vos dedico. Até breve. 
+>
+> **Demeure**
+
+📝 **Nota**. As duas comunicações seguintes, dadas em data de 1o e 2 de fevereiro, dizem respeito à enfermidade de que fomos acometidos na ocasião. Posto que de caráter pessoal, reproduzimo-las como provas de que o Dr. Demeure se mostrava tão bom como Espírito, quanto o fora como homem.  
+
+> 👻 ▸ Meu bom amigo, tende coragem e confiança em nós, porquanto essa crise, apesar de ser fatigante e dolorosa, não será longa, e, com os conselhos prescritos, podereis, conforme desejais, completar a obra que vos propusestes como fito da vossa existência. Sou eu quem aqui está, perto de vós, e com o Espírito de Verdade, que me permite falar em seu nome, por ser eu dos vossos amigos o mais recentemente desencarnado. É como se me fizessem as honras da recepção. Caro mestre, quanto me sinto feliz por ter desencarnado a tempo de estar com esses amigos neste momento! mais cedo, livre, eu poderia talvez ter-vos poupado essa crise que não previa. Era muito recente o meu desprendimento para ocupar-me de outras coisas que não as espirituais, mas agora velarei por vós, caro mestre. Aqui estou para, feliz como Espírito, ao vosso lado, prestar os meus serviços. Conheceis o provérbio: ‘ajuda-te, o Céu te ajudará’. Pois bem, ajudai os bons Espíritos que vos assistem, conformando-vos com as suas prescrições. Está muito quente aqui; este carvão é fatigante. Enquanto estiverdes doente, convém não o queimeis mais, a fim de não aumentar o vosso sufocamento. Os gases que daí se desprendem são deletérios.”  
+>
+> **Vosso amigo, Demeure**
+
+> 👻 ▸ Sou eu, Demeure, o amigo do Sr. Kardec. Venho dizer-lhe que o acompanhava quando lhe sobreveio o acidente. Este seria certamente funesto sem a intervenção eficaz para a qual me ufano de haver concorrido. De acordo com as minhas observações e com os informes colhidos em boa fonte, é evidente para mim que, quanto mais cedo se der a sua desencarnação, tanto mais breve reencarnará para completar a sua obra. É preciso, contudo, antes de partir, dar a última demão às obras complementares da teoria doutrinal de que é o iniciador. Se, portanto, por excesso de trabalho, não atendendo à imperfeição do seu organismo, antecipar a partida para cá, será passível da pena de homicídio voluntário. É mister dizer-lhe toda a verdade, para que se previna e siga estritamente as nossas prescrições.”  
+>
+> **Demeure**
+
+A seguinte comunicação foi obtida em Montauban, aos 26 de janeiro, dia seguinte ao da sua desencarnação, num Centro de amigos espíritas que havia nessa cidade.  
+
+> 👻 ▸ Antoine Demeure. Não morri para vós, meus amigos, porém para aqueles que não conhecem a santa doutrina que reúne os que se amaram e tiveram na Terra os mesmos pensamentos, os mesmos sentimentos de amor e caridade. Sou feliz e mais feliz do que esperava, gozando de uma lucidez rara entre os Espíritos, relativamente ao tempo da minha desencarnação.  
+>
+> Revesti-vos de coragem, bons amigos, que eu estarei muitas vezes junto de vós, instruindo-vos em muitas coisas que ignoramos quando presos à matéria, espesso véu que é de tantas magnificências, de tantos gozos. Orai pelos que estão privados dessa felicidade, pois eles não sabem o mal que fazem a si mesmos.  
+>
+> Hoje não me prolongarei, dizendo-vos somente que me não sinto de todo estranho neste mundo dos invisíveis, parecendo-me até que sempre o habitei. Aqui sou feliz vendo os meus amigos, comunicando-me com eles sempre que o desejo.  
+>
+> Não choreis, meus amigos, porque me faríeis lamentar o haver-vos conhecido. Deixai correr o tempo, e Deus vos encaminhará para esta mansão, onde nos devemos todos reunir finalmente. Boa noite, amigos; que Deus vos conforte, ficando eu ao vosso lado.  
+>
+> **Demeure**
+
+Ainda de uma carta de Montauban extraímos a narrativa seguinte:  
+
+> 👻 ▸ Tínhamos ocultado à Sra. G., médium sonambúlica e vidente muito lúcida — a morte do Dr. Demeure, em atenção à sua extrema sensibilidade. Sem dúvida, secundando o nosso intuito, o bom médico também evitou manifestar-se-lhe. A 10 de fevereiro reunimo-nos a convite dos guias, que diziam querer aliviar a Sra. G. de uma luxação, em consequência da qual muito sofria desde a véspera. Nada mais sabíamos, e longe estávamos de pensar na surpresa que nos aguardava. Logo que essa senhora se mediunizou, começou a soltar gritos lancinantes, mostrando o pé. Eis o que se passava: A Sra. G. via um Espírito curvado a seus pés com a fisionomia oculta, a fazer-lhe fricções e massagens, exercendo de vez em quando uma tração longitudinal sobre a parte luxada, exatamente como faria qualquer médico. A operação era tão dolorosa, que a paciente vociferava empregando movimentos desordenados.  
+>
+> No entanto, a crise não foi longa e ao fim de uns dez minutos desapareciam a inflamação e os traços da luxação, retomando o pé a sua aparência normal. A Sra. G. estava curada! O Espírito continuava incógnito para a médium, persistindo em não lhe revelar as feições, quando, por mostrar desejos de retirar-se, a doente, que momentos antes não daria um passo, se atira de um salto ao centro do quarto para apertar a mão do seu médico espiritual. Ainda desta feita, o Espírito voltou o rosto, deixando a mão na da médium. Nesse momento a Sra. G. dá um grito e cai desfalecida no soalho, vindo de reconhecer o Dr. Demeure no Espírito que a operara. Durante a síncope ela recebia cuidados de muitos Espíritos afeiçoados.  
+>
+> Por fim, reapareceu a lucidez sonambúlica e ela conversou com muitos desses Espíritos, trocando-se felicitações, sobretudo com o Dr. Demeure, que lhe correspondia aos testemunhos de afeição penetrando-a de fluidos reparadores.  
+>
+> Não é uma tal cena surpreendentemente dramática, considerando-se as personagens como que representando papéis da vida humana? Não será uma prova, entre mil outras, de que os Espíritos são seres efetivamente reais, agindo como se estivessem na Terra? Somos felizes por ver, no amigo Espírito, o mesmo coração bondoso do médico solícito e abnegado que foi neste mundo. Ele fora durante a vida o médico da médium, e, conhecendo a sua extrema sensibilidade, poupou-a tanto quanto se fora sua própria filha. Esta prova de identidade, conferida aos que o Espírito prezava, é admirável e de molde a fazer encarar a vida futura por um prisma mais consolador.  
+
+📝 **Nota**. A situação espiritual do Dr. Demeure é justamente a que se podia antever na sua vida tão digna quão utilmente empregada. Mas, dessas comunicações, resulta ainda um outro fato não menos instrutivo — o da atividade que ele emprega quase imediatamente após a morte, no sentido de tornar-se prestimoso. Por sua alta inteligência e qualidades morais, ele pertence à categoria dos Espíritos muito adiantados. A sua felicidade não é, porém, a da inação. Ainda há poucos dias tratava doentes como médico, e mal apenas se desprende da matéria, ei-lo a tratá-los como Espírito. Dirão certas pessoas que nada se adianta, então, com a permanência no outro mundo, uma vez que se não goza ali de repouso. É o caso de lhes perguntarmos se é nada o não termos mais cuidados, necessidades, moléstias; podermos livre e sem fadigas percorrer o Espaço com a rapidez do pensamento, ver os que nos são sempre caros e a toda hora, por mais distantes que de nós se achem! — E acrescentaremos: — Quando no outro mundo, nada vos forçará a vontade; poderíeis ficar em beatífica ociosidade e pelo tempo que vos aprouvesse, mas ficai certos de que esse repouso egoísta depressa vos enfadaria, e seríeis os primeiros a solicitar qualquer ocupação. Então se vos diria que se a ociosidade vos enfada, deveis vós mesmos procurar algo fazer, visto não escassearem ocasiões de ser útil, quer no mundo dos Espíritos, quer no dos homens. E assim é que a atividade espiritual deixa de ser uma obrigação para tornar-se uma necessidade, um prazer relativo às tendências e aptidões, escolhidos de preferência os misteres mais propícios ao adiantamento de cada um.  
+
+#### 07. A viúva Foulon, nascida Wollis
+
+A Sra. Foulon, falecida em Antibes a 3 de fevereiro de 1865, residiu por muito tempo no Havre, onde granjeou a reputação de miniaturista habilíssima. De notável talento, aproveitou-o primeiro como simples amadora, mas, quando lhe sobrevieram necessidades, fez da sua arte proveitosa fonte de receita. O que a tornava admirada e estimada, conquistando-lhe depois, da parte dos que a conheceram, uma recordação memorável, era sobretudo a amenidade do caráter, as qualidades pessoais, que só os íntimos podiam conhecer em toda a sua extensão. É que a Sra. Foulon, como todos os que têm inato o sentimento do bem, não o alardeava, antes o considerava predicado natural. Se houve pessoa sobre a qual o egoísmo não tenha tido ascendente, tal, sem dúvida, foi ela. Nunca, talvez, o sentimento da abnegação pessoal foi tão ampliado, pronta como estava sempre a sacrificar-lhe o repouso, a saúde e os interesses em proveito dos necessitados. Pode dizer-se que a sua vida foi uma longa série de sacrifícios, como também de rudes provações desde a mocidade, sem que a coragem e a resignação, a despeito delas, jamais lhe faltassem. Mas eis que a sua vista, cansada por meticuloso trabalho, extinguia-se dia a dia, a ponto de, com algum tempo mais, resultar em completa cegueira! Foi então que o conhecimento da Doutrina Espírita se lhe tornou em oceano de luz, rasgando-lhe como que espesso véu para deixar-lhe entrever alguma coisa não totalmente desconhecida, mas da qual possuía apenas uma vaga intuição. Estudou-a com afinco, mas ao mesmo tempo com o critério de apreciação própria das pessoas, tal qual ela, dotadas de uma alta inteligência.  
+
+Fora preciso avaliar todas as incertezas, todas as dúvidas da sua existência, provenientes não dela, mas dos parentes, para julgar das consolações que hauriu na sublime revelação, e que lhe deram a fé inquebrantável do futuro, a consciência da nulidade das coisas terrenas.  
+
+Também a sua morte foi digna da vida que teve. Sem a mínima apreensão angustiosa, viu-a aproximar-se como libertação que lhe era das cadeias terrestres, ao mesmo tempo que lhe abria as portas da vida espiritual, com a qual se identificara no estudo do Espiritismo. E morreu calmamente, convicta de haver completado a missão que aceitara ao encarnar, pois cumprira escrupulosamente os deveres de esposa e mãe de família; e assim como durante a vida declinara de todo e qualquer ressentimento em relação àqueles de quem porventura pudera queixar-se por ingratos; e assim como sempre trocara o bem pelo mal, assim também desencarnou, perdoando-lhes, implorando para eles a bondade e a justiça divinas.  
+
+Desencarnou, finalmente, com a serenidade decorrente de uma consciência ilibada, e a convicção de que nem por isso se afastaria mais dos filhos, uma vez que poderia estar com eles em espírito, aconselhá-los e protegê-los, fosse qual fosse o ponto do globo em que se achassem.  
+
+Logo que soubemos do trespasse da Sra. Foulon, tivemos por primeiro cuidado o de evocá-la. As relações de amizade e simpatia, que a Doutrina estabelecera entre nós, explicam algumas das suas frases e justificam a familiaridade de linguagem.  
+
+##### 01
+
+(Paris, 6 de fevereiro de 1865, três dias após o decesso.)
+
+Tendo como certo que havíeis de evocar-me logo após o desprendimento, prontificava-me para corresponder-vos, visto não ter experimentado qualquer perturbação. Esta só existe para os seres envoltos e submersos nas trevas do seu próprio Espírito.  
+
+Pois bem! meu amigo, considero-me feliz agora; estes míseros olhos que se enfraqueceram a ponto de me não deixarem mais que a recordação de coloridos prismas da juventude, de esplendor cintilante; estes olhos, digo, abriram-se aqui para rever horizontes esplêndidos, idealizados em vagas reproduções por alguns dos vossos geniais artistas, mas cuja exuberância majestática, severa e conseguintemente grandiosa, tem o cunho da mais completa realidade.  
+
+Não há mais de três dias que desencarnei e sinto que sou artista: as minhas aspirações, atinentes ao ideal do belo artístico, mais não eram que a intuição de faculdades adquiridas em anteriores existências e na última encarnação desenvolvidas.  
+
+Mas quanto trabalho para reproduzir uma obra-prima, digna da grandiosa cena que se antolha ao Espírito chegado às regiões da luz! Pincéis! pincéis e eu provarei ao mundo que a arte espírita é o complemento da arte pagã, da arte cristã que periclita, cabendo somente ao Espiritismo a glória de revivê-la com todo o esplendor sobre vosso mundo deserdado. Isto é o bastante para a artista; e agora, à amiga:  
+
+> 👻 ▸ Por que vos incomodar assim, minha boa amiga (refere-se à Sra. Allan Kardec), com o motivo da minha morte? Vós, principalmente, vós que conheceis as decepções e amarguras da minha existência devereis antes regozijar-vos em sabendo que não mais bebo na taça amarga das dores terrenas, taça esgotada até as fezes. Crede-me: os mortos são mais felizes que os vivos e pranteá-los é duvidar das verdades espíritas. Tornareis a ver-me, ficai certa. Se parti primeiro é porque finda estava a tarefa, que aliás cada qual tem na Terra. Assim, quando a vossa for completada, vireis repousar um pouco junto de mim para recomeçar mais tarde, atento ao princípio de que nada é inativo na natureza. Todos temos más tendências, às quais obedecemos, o que é uma lei suprema e comprobatória da faculdade do livre-arbítrio. Portanto, tende indulgência e caridade, minha amiga, sentimentos esses de que mutuamente carecemos, quer no mundo visível, quer no invisível. Com tal divisa, tudo vai bem. Não me direis para cessar de falar. Sabei, contudo, que, para a primeira vez, bem longa já vai a conversação, motivo pelo qual vos deixo, para dar a vez ao meu excelente amigo Sr. Kardec.  
+>
+> Quero agradecer-lhe as palavras afetuosas que houve por bem dirigir à amiga que no túmulo o precedeu, visto como escapamos de partir juntos para o mundo em que me encontro! (Alusão à enfermidade de que falara o Dr. Demeure.) Que diria então a companheira amantíssima da nossa existência, se os bons Espíritos não tivessem intervindo? Teria chorado e gemido, o que até certo ponto compreendo. É preciso, porém, que vele para que não mais vos exponhais a novo perigo, antes de ter concluído o trabalho da iniciação espírita, chegando antecipadamente entre nós e, qual Moisés, não vendo senão de longe a Terra da Promissão.  
+>
+> É uma amiga que vo-lo diz, acautelai-vos.  
+>
+> Agora parto para junto dos meus queridos filhos, depois do que irei ver, além-mar, se a minha ovelha viajora aportou à terra ou permanece à mercê das tempestades. (Refere-se a uma das filhas que residia na América.) Oxalá a protejam os bons Espíritos, aos quais para o mesmo fim vou reunir-me. Voltarei a conversar convosco, pois não vos esqueçais de que sou uma conversadora infatigável.  
+>
+> Até breve, bons e caros amigos; até logo.  
+>
+> **Viúva Foulon**
+
+##### 02
+
+(8 de fevereiro de 1865.)
+
+- Cara Sra. Foulon, considero-me satisfeito com a comunicação de há dias, na qual prometestes continuar a nossa conversação.  
+
+Crede que vos reconheci logo, por falardes de coisas desconhecidas do médium e muito próprias do vosso Espírito. A linguagem afetuosa para conosco é, seguramente, de uma alma amorosa como a vossa, conquanto notássemos nas palavras uma firmeza, uma segurança, uma pronúncia até então desconhecida em vós. Lembrai-vos certamente que neste sentido eu me permiti fazer-vos mais de uma advertência, em certas e determinadas circunstâncias.  
+
+> 👻 ▸ É verdade, sim, porém, desde que enfermei gravemente, tratei de readquirir a firmeza de espírito, abalada pelos desgostos e vicissitudes que tantas vezes me fizeram tímida na Terra. Eu disse para comigo: Pois que és espírita, esquece a Terra; prepara-te para a transformação do teu ser e vê, pelo pensamento, a trilha luminosa que espera a tua alma após o desenlace, e pela qual deverás libertar-te, desembaraçada e feliz, às esferas celestes, onde, de futuro, irás habitar.  
+>
+> Dir-me-eis talvez que era um tanto presunçosa em contar com a perfeita felicidade, uma vez desencarnada, mas o fato é que eu sofrera tanto, tanto, que deveria expiar as faltas não só da última, como das anteriores encarnações. Essa intuição não me iludia e foi ela quem me deu a coragem, a calma e a firmeza dos últimos momentos. Pois bem: essa firmeza cresceu de pronto quando, após a libertação, vi as esperanças realizadas. 
+
+- Descrevei-nos agora a transição, o despertar e as primeiras impressões que aí recebestes.  
+
+> 👻 ▸ Eu sofri, mas o Espírito sobrepujou o sofrimento material que o desprendimento em si lhe acordava. Depois do último alento, encontrei-me como que em desmaio, sem consciência do meu estado, não pensando em coisa alguma, numa vaga sonolência que não era bem o sono do corpo nem o despertar da alma. Nesse estado fiquei longo tempo, e depois, como se saísse de prolongada síncope, lentamente despertei no meio de irmãos que não conhecia. Eles prodigalizavam-me cuidados e carícias, ao mesmo tempo que me mostravam no Espaço um ponto algo semelhante a uma estrela, dizendo: “É para ali que vais conosco, pois já não pertences mais à Terra.” Então, recordei-me; e, apoiada sobre eles, formando um grupo gracioso que se lança para as esferas desconhecidas, mas na certeza de aí achar a felicidade, subimos, subimos, à proporção que a estrela se engrandecia...  
+>
+> Era um mundo feliz, um centro superior no qual a vossa amiga vai repousar. Quando digo repouso, quero referir-me às fadigas corporais que amarguei, às contingências da vida terrestre, não à indolência do Espírito, pois que este tem na atividade uma fonte de gozos. 
+
+- Então deixastes a Terra definitivamente?  
+
+> 👻 ▸ Deixo nela muitos entes queridos, para que possa separar-me definitivamente. A ela virei, portanto, em Espírito, incumbida como estou de uma missão junto de meus filhinhos. De sobejo sabeis que nenhum obstáculo se opõe à vinda à Terra, à visita, em suma, dos Espíritos que demoram em mundos superiores. 
+
+- A vossa posição de agora poderia de algum modo diminuir ou enfraquecer as relações com os que aqui deixastes?  
+
+> 👻 ▸ Não, meu amigo, o amor aproxima as almas. Ficai certo de que na Terra podeis estar mais próximos dos que atingiram a perfeição, do que daqueles que por sua inferioridade e egoísmo gravitam ao redor da esfera terrestre.  
+>
+> A caridade e o amor são dois motores de poderosa atração, a qual consolida e prolonga a união das almas, a despeito de distâncias e lugares. “A distância só existe para os corpos materiais, nunca para os Espíritos. 
+
+- Que ideia fazeis agora dos meus trabalhos sobre Espiritismo?  
+
+> 👻 ▸ Parece-me que sois um missionário e que o fardo é pesado, mas também prevejo o fim da vossa missão e sei que o atingireis. Ajudar-vos-ei no que estiver ao meu alcance, com os meus conselhos de Espírito, para que possais superar as dificuldades que vos serão suscitadas, animando-vos, enfim, a tomar medidas próprias para ativar, durante vossa vida, o movimento renovador que o Espiritismo impulsiona.  
+>
+> Demeure, o vosso amigo, unido ao Espírito de Verdade, vos será mais útil ainda, porquanto é mais sábio e ponderado do que eu. Sei que a assistência dos bons Espíritos vos fortalece e sustenta no vosso labor, e assim também vos asseguro o meu concurso sempre e em qualquer parte. 
+
+- De algumas das vossas palavras pode inferir-se que não prestareis mui ativa colaboração pessoal na propagação do Espiritismo?  
+
+> 👻 ▸ Enganais-vos. O fato é que vejo tantos outros Espíritos mais capazes do que eu de tratar deste assunto, aliás tão importante, que uma timidez invencível me impede de vos responder conforme desejais. Provavelmente assim acontecerá, e eu me animarei com denodo desde que melhor conheça esses Espíritos. Há quatro dias apenas que deixei a Terra e, conseguintemente, ainda estou sob a influência deslumbradora de tudo que me cerca. Dar-se-á o caso de não me compreenderdes? Não encontro meios de exprimir as sensações novas que experimento. Esforço-me a todo o transe para fugir à fascinação que sobre o meu ser exercem as maravilhas por ele admiradas. A única coisa que posso fazer é adorar e render graças a Deus nas suas obras. Mas essa impressão se desvanecerá e os Espíritos asseguram-me que dentro em breve estarei acostumada a todas estas magnificências, de modo a poder tratar com lucidez espiritual de todas as questões concernentes à renovação da Terra. A tal circunstância deveis juntar mais a de ter eu uma família a consolar.  
+>
+> Adeus e até breve, caro mestre. A vossa boa amiga ama-vos e amará sempre, visto como a vós exclusivamente deve a única consolação duradoura e verdadeira que teve na Terra.  
+>
+> **Viúva Foulon**
+
+##### 03
+
+A comunicação seguinte foi destinada a seus filhos em data de 9 de fevereiro:  
+
+> 👻 ▸ Meus amantíssimos filhos:  
+>
+> Deus retirou-me de junto de vós, mas a recompensa que se dignou conceder-me é bem maior que o pouco que fiz na Terra.  
+>
+> Resignai-vos, queridos filhos, às vontades do Onipotente e tirai, de tudo quanto vos permitiu receberdes, a força para suportar as provações da vida. Tende firme no coração a crença que tanto me facilitou a passagem para este mundo.  
+>
+> Depois da morte, Deus, tal como já o havia feito na Terra, estendeu sobre mim o manto da sua misericórdia infinita.  
+>
+> A Ele deveis agradecer os benefícios de que vos cumula. Abençoai-o, meus filhos, bendizei-o sempre, a todo o instante. Não percais nunca de vista o que vos foi indicado, nem o caminho a trilhar. Meditai sobre a aplicação do tempo que Deus vos determinou na Terra. Aí sereis felizes, meus queridos filhos, felizes uns pelos outros, desde que a união reine entre vós. Felizes ainda com vossos filhos, se os educardes nos mesmos sãos princípios que Deus permitiu vos fossem revelados. Não me podeis ver, é certo; mas convém que saibais que os elos que aí nos ligavam não se espedaçaram pela morte do corpo, visto como não era o invólucro, mas o Espírito que nos unia. E assim é que me será possível, por bondade do Onipotente, guiar-vos, encorajar-vos nessa jornada, para de novo nos juntarmos, quando para vós ela estiver terminada.  
+>
+> Caros filhos, cultivai carinhosamente esta crença sublime. A vós que a tendes, belos dias vos aguardam. Isso mesmo já vos disseram, porém a mim não estava fadado o ver esses dias aí na Terra. Será do alto, pois, que julgarei os belos tempos prometidos pelo Deus de bondade, de justiça e misericórdia. Não choreis, meus filhos. Possam estas comunicações fortalecer-vos na fé, no amor de Deus, esse Deus que tantos benefícios nos prodigalizou, que tantas e tantas vezes socorreu vossa mãe. Orai sempre, que a prece revigora. Conformai-vos com as prescrições por mim tão ardentemente seguidas, quando como vós encarnada.  
+>
+> Voltarei, meus filhos, mas é preciso consolar a filha que de mim tanto precisa agora. Adeus, até breve. Eu vo-lo suplico por vós: crede na bondade divina. Até sempre.  
+>
+> **Viúva Foulon**
+
+📝 **Nota**. Todo Espírito esclarecido e sério tirará, com facilidade, destas comunicações os ensinamentos que delas ressaltam. Nós apenas lhe chamaremos a atenção para os dois pontos seguintes:  
+
+Primeiro — a possibilidade, por este exemplo demonstrada, de não mais ser preciso encarnar na Terra e passar a um mundo superior, sem ficar separado dos seres afeiçoados que aqui deixamos. Assim, os que temem a reencarnação, em virtude das misérias terrenas, podem conjurá-la, trabalhando para o seu adiantamento. E assim procederá aquele que não quiser vegetar nas camadas inferiores, fazendo o possível por instruir-se, por trabalhar e graduar-se.  
+
+O segundo ponto é a confirmação do fato de estarmos menos separados na morte do que na vida, dos seres que nesta nos foram caros.  
+
+Retida pela enfermidade e pela idade numa pequena cidade do Sul, a Sra. Foulon apenas conservava junto de si apenas uma parte de sua família. Estando a maior parte dos filhos e dos amigos dispersos e afastados, obstáculos materiais impediam que os visse tantas vezes quantas porventura o desejaria. Para alguns, a distância dificultava a própria correspondência. Apenas desencarnada, a Sra. Foulon, célere, corre para perto de cada um, percorre distâncias sem fadiga, rápida qual a eletricidade, e os vê e assiste às suas reuniões íntimas, protege-os e pode, servindo-se da mediunidade, entreter-se com eles a todo instante, como se viva na Terra fora.  
+
+E dizer-se que, a uma perspectiva tão consoladora, ainda há quem prefira a ideia de uma eterna separação
 
 #### CEU-2-02-07
 
