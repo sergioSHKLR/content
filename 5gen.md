@@ -318,165 +318,352 @@ Uma comparação vulgar tornará ainda melhor compreensível a situação. Parte
 
 ### 📑 02 - Deus
 
-##### #️⃣ GEN-1-02-p1
+#### Existência de Deus
 
-##### #️⃣ GEN-1-02-p2
+##### #️⃣ 01
 
-##### #️⃣ GEN-1-02-p3
+Sendo Deus a causa primária de todas as coisas, a origem de tudo o que existe, a base sobre que repousa o edifício da Criação, é também o ponto que importa consideremos antes de tudo.
 
-##### #️⃣ GEN-1-02-p4
+##### #️⃣ 02
 
-##### #️⃣ GEN-1-02-p5
+Constitui princípio elementar que pelos seus efeitos é que se julga de uma causa, mesmo quando ela se conserve oculta. Se, fendendo os ares, um pássaro é atingido por mortífero grão de chumbo, deduz-se que hábil atirador o alvejou, ainda que este último não seja visto. Nem sempre, pois, se faz necessário vejamos uma coisa, para sabermos que ela existe. Em tudo, observando os efeitos é que se chega ao conhecimento das causas.
 
-##### #️⃣ GEN-1-02-p6
+##### #️⃣ 03
 
-##### #️⃣ GEN-1-02-p7
+Outro princípio igualmente elementar e que, de tão verdadeiro, passou a axioma é o de que todo efeito inteligente tem que decorrer de uma causa inteligente. Se perguntassem qual o construtor de certo mecanismo engenhoso, que pensaríamos de quem respondesse que ele se fez a si mesmo? Quando se contempla uma obra-prima da arte ou da indústria, diz-se que há de tê-la produzido um homem de gênio, porque só uma alta inteligência poderia concebê-la. Reconhece-se, no entanto, que ela é obra de um homem, por se verificar que não está acima da capacidade humana; mas a ninguém acudirá a ideia de dizer que saiu do cérebro de um idiota ou de um ignorante, nem, ainda menos, que é trabalho de um animal, ou produto do acaso.
 
-##### #️⃣ GEN-1-02-p8
+##### #️⃣ 04
 
-##### #️⃣ GEN-1-02-p9
+Em toda parte se reconhece a presença do homem pelas suas obras. A existência dos homens antediluvianos não se provaria unicamente por meio dos fósseis humanos: provou-a também, e com muita certeza, a presença, nos terrenos daquela época, de objetos trabalhados pelos homens. Um fragmento de vaso, uma pedra talhada, uma arma, um tijolo bastarão para lhe atestar a presença. Pela grosseria ou perfeição do trabalho, reconhecer-se-á o grau de inteligência ou de adiantamento dos que o executaram. Se, pois, achando-vos numa região habitada exclusivamente por selvagens, descobrirdes uma estátua digna de Fídias,[^17] não hesitareis em dizer que, sendo incapazes de tê-la feito os selvagens, ela é obra de uma inteligência superior à destes.
 
-##### #️⃣ GEN-1-02-p10
+[^17]: N.E.: Fídias, escultor grego do séc. V a.C. Incumbido por Péricles de dirigir os trabalhos do Pártenon, encarregou-se da decoração esculpida (friso das Panateneias), apogeu do estilo clássico grego.
 
-##### #️⃣ GEN-1-02-p11
+##### #️⃣ 05
 
-##### #️⃣ GEN-1-02-p12
+Pois bem! lançando o olhar em torno de si, sobre as obras da natureza, notando a providência, a sabedoria, a harmonia que presidem a essas obras, reconhece o observador não haver nenhuma que não ultrapasse os limites da mais portentosa inteligência humana. Ora, desde que o homem não as pode produzir, é que elas são produto de uma inteligência superior à humanidade, a menos se sustente que há efeitos sem causa.
 
-##### #️⃣ GEN-1-02-p13
+##### #️⃣ 06
 
-##### #️⃣ GEN-1-02-p14
+A isto opõem alguns o seguinte raciocínio: As obras ditas da natureza são produzidas por forças materiais que atuam mecanicamente, em virtude das leis de atração e repulsão; as moléculas dos corpos inertes se agregam e desagregam sob o império dessas leis. As plantas nascem, brotam, crescem e se multiplicam sempre da mesma maneira, cada uma na sua espécie, por efeito daquelas mesmas leis; cada indivíduo se assemelha ao de quem ele proveio; o crescimento, a floração, a frutificação, a coloração se acham subordinados a causas materiais, tais como o calor, a eletricidade, a luz, a umidade etc. O mesmo se dá com os animais. Os astros se formam pela atração molecular e se movem perpetuamente em suas órbitas por efeito da gravitação. Essa regularidade mecânica no emprego das forças naturais não acusa a ação de qualquer inteligência livre. O homem movimenta o braço quando quer e como quer; aquele, porém, que o movimentasse no mesmo sentido, desde o nascimento até a morte, seria um autômato. Ora, as forças orgânicas da natureza são puramente automáticas. Tudo isso é verdade, mas essas forças são efeitos que hão de ter uma causa e ninguém pretende que elas constituam a Divindade. Elas são forças materiais e mecânicas; não são por si mesmas inteligentes, o que também é verdade; mas são postas em ação, distribuídas, apropriadas às necessidades de cada coisa por uma inteligência que não é a dos homens. A aplicação útil dessas forças é um efeito inteligente que denota uma causa inteligente. Um pêndulo se move com automática regularidade e é nessa regularidade que lhe está o mérito. É toda material a força que o faz mover-se e nada tem de inteligente. Mas que seria esse pêndulo se uma inteligência não houvesse combinado, calculado, distribuído o emprego daquela força, para fazê-lo andar com precisão? Do fato de não estar a inteligência no mecanismo do pêndulo e do fato de que ninguém a vê, seria racional deduzir-se que ela não existe? Julgamo-la pelos seus efeitos. A existência do relógio atesta a existência do relojoeiro; a engenhosidade do mecanismo lhe atesta a inteligência e o saber. Quando um relógio vos indica a hora que desejais saber, quem se lembrará de dizer: aí está um relógio bem inteligente? Outro tanto ocorre com o mecanismo do universo: Deus não se mostra, mas se revela pelas suas obras.
 
-##### #️⃣ GEN-1-02-p15
+##### #️⃣ 07
 
-##### #️⃣ GEN-1-02-p16
+A existência de Deus é, pois, uma realidade comprovada não só pela revelação, como pela evidência material dos fatos. Os povos selvagens nenhuma revelação tiveram; entretanto, creem instintivamente na existência de um poder sobre-humano. Eles veem coisas que estão acima das possibilidades do homem e deduzem que essas coisas provêm de um ente superior à humanidade. Não demonstram raciocinar com mais lógica do que os que pretendem que tais coisas se fizeram a si mesmas?
 
-##### #️⃣ GEN-1-02-p17
+#### Da natureza divina
 
-##### #️⃣ GEN-1-02-p18
+##### #️⃣ 08
 
-##### #️⃣ GEN-1-02-p19
+Não é dado ao homem sondar a natureza íntima de Deus. Para compreender Deus, ainda nos falta o sentido, que só se adquire com a completa depuração do Espírito. Mas se o homem não pode penetrar a essência de Deus, pode ter como premissa a sua existência. O homem pode, então, pela razão chegar a conhecer-lhe os atributos necessários e concluir que esses atributos só podem ser divinos, deduzindo daí quem é Deus. Sem o conhecimento dos atributos de Deus, impossível seria compreender-se a obra da Criação. Esse é o ponto de partida de todas as crenças religiosas e por não se terem reportado aos atributos, como ao farol capaz de as orientar, que a maioria das religiões errou em seus dogmas. As que não atribuíram a Deus a onipotência imaginaram muitos deuses; as que não lhe atribuíram soberana bondade fizeram dele um Deus ciumento, colérico, parcial e vingativo.
 
-##### #️⃣ GEN-1-02-p20
+##### #️⃣ 09
 
-##### #️⃣ GEN-1-02-p21
+Deus é a suprema e soberana inteligência. É limitada a inteligência do homem, pois que não pode fazer, nem compreender tudo o que existe. A de Deus, abrangendo o infinito, tem que ser infinita. Se a supuséssemos limitada num ponto qualquer, poderíamos conceber outro ser mais inteligente, capaz de compreender e fazer o que o primeiro não faria e assim por diante, até o infinito.
 
-##### #️⃣ GEN-1-02-p22
+##### #️⃣ 10
 
-##### #️⃣ GEN-1-02-p23
+Deus é eterno, isto é, não teve começo e não terá fim. Se tivesse tido princípio, houvera saído do nada. Ora, não sendo o nada coisa alguma, coisa nenhuma pode produzir. Ou, então, teria sido criado por outro ser anterior e, nesse caso, este ser é que seria Deus. Se lhe supuséssemos um começo ou fim, poderíamos conceber uma entidade existente antes dele e capaz de lhe sobreviver, e assim por diante, ao infinito.
 
-##### #️⃣ GEN-1-02-p24
+##### #️⃣ 11
 
-##### #️⃣ GEN-1-02-p25
+Deus é imutável. Se estivesse sujeito a mudanças, nenhuma estabilidade teriam as leis que regem o universo.
 
-##### #️⃣ GEN-1-02-p26
+##### #️⃣ 12
 
-##### #️⃣ GEN-1-02-p27
+Deus é imaterial, isto é, a sua natureza difere de tudo o que chamamos matéria. De outro modo, não seria imutável, pois estaria sujeito às transformações da matéria. Deus carece de forma apreciável pelos nossos sentidos, sem o que seria matéria. Dizemos: a mão de Deus, o olho de Deus, a boca de Deus, porque o homem, nada mais conhecendo além de si mesmo, toma a si próprio por termo de comparação para tudo o que não compreende. São ridículas essas imagens em que Deus é representado pela figura de um ancião de longas barbas e envolto num manto. Têm o inconveniente de rebaixar o Ente supremo até as mesquinhas proporções da humanidade. Daí a lhe emprestarem as paixões humanas e a fazerem-no um Deus colérico e ciumento não vai mais que um passo.
 
-##### #️⃣ GEN-1-02-p28
+##### #️⃣ 13
 
-##### #️⃣ GEN-1-02-p29
+Deus é onipotente. Se não possuísse o poder supremo, sempre se poderia conceber uma entidade mais poderosa e assim por diante, até chegar-se ao ser cuja potencialidade nenhum outro ultrapassasse. Esse então é que seria Deus
 
-##### #️⃣ GEN-1-02-p30
+##### #️⃣ 14
 
-##### #️⃣ GEN-1-02-p31
+Deus é soberanamente justo e bom. A providencial sabedoria das Leis divinas se revela nas mais pequeninas coisas, como nas maiores, não permitindo essa sabedoria que se duvide da sua justiça, nem da sua bondade. O fato de ser infinita uma qualidade, exclui a possibilidade de uma qualidade contrária, porque esta a apoucaria ou anularia. Um ser infinitamente bom não poderia conter a mais insignificante parcela de malignidade, nem o ser infinitamente mau conter a mais insignificante parcela de bondade, do mesmo modo que um objeto não pode ser de um negro absoluto, com a mais ligeira nuança de branco, nem de um branco absoluto com a menor mancha preta. Deus, pois, não poderia ser simultaneamente bom e mau, porque então, não possuindo qualquer dessas duas qualidades no grau supremo, não seria Deus; todas as coisas estariam sujeitas ao seu capricho e para nenhuma haveria estabilidade. Não poderia Ele, por conseguinte, deixar de ser ou infinitamente bom ou infinitamente mau. Ora, como suas obras dão testemunho da sua sabedoria, da sua bondade e da sua solicitude, concluir-se-á que, não podendo ser ao mesmo tempo bom e mau sem deixar de ser Deus, Ele necessariamente tem de ser infinitamente bom. A soberana bondade implica a soberana justiça, porquanto, se Ele procedesse injustamente ou com parcialidade numa só circunstância que fosse, ou com relação a uma só de suas criaturas, já não seria soberanamente justo e, em consequência, já não seria soberanamente bom.
 
-##### #️⃣ GEN-1-02-p32
+##### #️⃣ 15
 
-##### #️⃣ GEN-1-02-p33
+Deus é infinitamente perfeito. É impossível conceber-se Deus sem o infinito das perfeições, sem o que não seria Deus, pois sempre se poderia conceber um ser que possuísse o que lhe faltasse. Para que nenhum ser possa ultrapassá-lo, faz-se mister que Ele seja infinito em tudo. Sendo infinitos, os atributos de Deus não são suscetíveis nem de aumento, nem de diminuição, visto que do contrário não seriam infinitos e Deus não seria perfeito. Se lhe tirassem a qualquer dos atributos a mais mínima parcela, já não haveria Deus, pois que poderia existir um ser mais perfeito.
 
-##### #️⃣ GEN-1-02-p34
+##### #️⃣ 16
 
-##### #️⃣ GEN-1-02-p35
+Deus é único. A unicidade de Deus é consequência do fato de serem infinitas as suas perfeições. Não poderia existir outro Deus, salvo sob a condição de ser igualmente infinito em todas as coisas, visto que, se houvesse entre eles a mais ligeira diferença, um seria inferior ao outro, subordinado ao poder desse outro e, então, não seria Deus. Se houvesse entre ambos igualdade absoluta, isso equivaleria a existir, por toda eternidade, um mesmo pensamento, uma mesma vontade, um mesmo poder. Confundidos quanto à identidade, não haveria, em realidade, mais que um único Deus. Se cada um tivesse atribuições especiais, um não faria o que o outro fizesse; mas, então, não existiria igualdade perfeita entre eles, pois que nenhum possuiria a autoridade soberana.
 
-##### #️⃣ GEN-1-02-p36
+##### #️⃣ 17
 
-##### #️⃣ GEN-1-02-p37
+A ignorância do princípio de que são infinitas as perfeições de Deus foi que gerou o politeísmo, culto adotado por todos os povos primitivos, que davam o atributo de divindade a todo poder que lhes parecia acima dos poderes inerentes à humanidade. Mais tarde, a razão os levou a reunir essas diversas potências numa só. Depois, à proporção que os homens foram compreendendo a essência dos atributos divinos, retiraram dos símbolos, que haviam criado, a crença que implicava a negação desses atributos.
+
+##### #️⃣ 18
+
+Em resumo, Deus não pode ser Deus, senão sob a condição de que nenhum outro o ultrapasse, porquanto o ser que o excedesse no que quer que fosse, ainda que apenas na grossura de um cabelo, é que seria o verdadeiro Deus. Para que tal não se dê, indispensável se torna que Ele seja infinito em tudo. É assim que, comprovada pelas suas obras a existência de Deus, por simples dedução lógica se chega a determinar os atributos que o caracterizam.
+
+##### #️⃣ 19
+
+Deus é, pois, a inteligência suprema e soberana, é único, eterno, imutável, imaterial, onipotente, soberanamente justo e bom, infinito em todas as perfeições, e não pode ser diverso disso. Tal o eixo sobre que repousa o edifício universal. Esse o farol cujos raios se estendem por sobre o universo inteiro, única luz capaz de guiar o homem na procura da verdade. Orientando-se por essa luz, ele nunca se transviará. Se, portanto, o homem há errado tantas vezes, é unicamente por não ter seguido o roteiro que lhe estava indicado. Tal também o critério infalível de todas as doutrinas filosóficas e religiosas. Para apreciá-las, dispõe o homem de uma medida rigorosamente exata nos atributos de Deus e pode afirmar a si mesmo que toda teoria, todo princípio, todo dogma, toda crença, toda prática que estiver em contradição com um só que seja desses atributos, que tenda não tanto a anulá-lo, mas simplesmente a diminuí-lo, não pode estar com a verdade. Em Filosofia, em Psicologia, em Moral, em Religião, só há de verdadeiro o que não se afaste, nem um til, das qualidades essenciais da Divindade. A religião perfeita será aquela de cujos artigos de fé nenhum esteja em oposição àquelas qualidades; aquela cujos dogmas todos suportem a prova dessa verificação sem nada sofrerem.
+
+#### A Providência
+
+##### #️⃣ 20
+
+A providência é a solicitude de Deus para com as suas criaturas. Ele está em toda parte, tudo vê, a tudo preside, mesmo às menores coisas. É nisto que consiste a ação providencial. “Como pode Deus, tão grande, tão poderoso, tão superior a tudo, imiscuir-se em pormenores ínfimos, preocupar-se com os menores atos e os menores pensamentos de cada indivíduo?” Esta a interrogação que a si mesmo dirige o incrédulo, concluindo por dizer que, admitida a existência de Deus, só se pode admitir, quanto à sua ação, que ela se exerça sobre as leis gerais do universo; que o universo funcione de toda a eternidade em virtude dessas leis, às quais toda criatura se acha submetida na esfera de suas atividades, sem que haja mister a intervenção incessante da ­Providência.
+
+##### #️⃣ 21
+
+No estado de inferioridade em que ainda se encontram, só muito dificilmente podem os homens compreender que Deus seja infinito, pois, vendo-se limitados e circunscritos, eles o imaginam também circunscrito e limitado. Imaginando-o circunscrito, figuram-no quais eles são, à imagem e semelhança deles. Os quadros em que o vemos com traços humanos não contribuem pouco para entreter esse erro no espírito das massas, que nele adoram mais a forma que o pensamento. Para a maioria, é Ele um soberano poderoso, sentado num trono inacessível e perdido na imensidade dos céus. Tendo restritas suas faculdades e percepções, não compreendem que Deus possa e se digne de intervir diretamente nas pequeninas coisas.
+
+##### #️⃣ 22
+
+Impotente para compreender a essência mesma da Divindade, o homem não pode fazer dela mais do que uma ideia aproximativa, mediante comparações necessariamente muito imperfeitas, mas que, ao menos, servem para lhe mostrar a possibilidade daquilo que, à primeira vista, lhe parece impossível. Suponhamos um fluido bastante sutil para penetrar todos os corpos. Sendo ininteligente, esse fluido atua mecanicamente, por meio tão só das forças materiais. Se, porém, o supusermos dotado de inteligência, de faculdades perceptivas e sensitivas, ele já não atuará às cegas, mas com discernimento, com vontade e liberdade: verá, ouvirá e sentirá.
+
+##### #️⃣ 23
+
+As propriedades do fluido perispirítico podem nos dar uma ideia. Ele não é de si mesmo inteligente, pois que é matéria, mas é o veículo do pensamento, das sensações e percepções do Espírito. O fluido perispiritual não é o pensamento do Espírito; é, porém, o agente e o intermediário desse pensamento. Sendo ele que o transmite, fica, de certo modo, impregnado do pensamento transmitido, e na impossibilidade em que nos achamos de isolar o pensamento, a nós parece que ele faz corpo com o fluido, dando a entender que são uma coisa só, como sucede com o som e o ar, de maneira que podemos, a bem dizer, materializá-lo. Assim como dizemos que o ar se torna sonoro, poderíamos, tomando o efeito pela causa, dizer que o fluido se torna inteligente.
+
+##### #️⃣ 24
+
+Seja ou não assim no que concerne ao pensamento de Deus, isto é, que o pensamento de Deus atue diretamente ou por intermédio de um fluido, para facilitar a nossa inteligência, figuremo-lo sob a forma concreta de um fluido inteligente que enche o universo infinito e penetra todas as partes da Criação: a natureza inteira está mergulhada no fluido divino. Ora, em virtude do princípio de que as partes de um todo são da mesma natureza e têm as mesmas propriedades que ele, cada átomo desse fluido, se assim nos podemos exprimir, possuindo o pensamento, isto é, os atributos essenciais da Divindade e estando o mesmo fluido em toda parte, tudo está submetido à sua ação inteligente, à sua previdência, à sua solicitude. Nenhum ser haverá, por mais ínfimo que o suponhamos, que não esteja saturado dele. Achamo-nos então, constantemente, em presença da Divindade; nenhuma das nossas ações lhe podemos subtrair ao olhar; o nosso pensamento está em contato ininterrupto com o seu pensamento, havendo, pois, razão para dizer-se que Deus vê os mais profundos refolhos do nosso coração. Estamos nele, como Ele está em nós, segundo a palavra do Cristo (1 João, 4:13). Para estender a sua solicitude a todas as criaturas, não precisa Deus lançar o olhar do Alto da imensidade. As nossas preces, para que Ele as ouça, não precisam transpor o espaço, nem ser ditas com voz retumbante, pois que, estando sempre ao nosso lado, os nossos pensamentos repercutem nele. Os nossos pensamentos são como os sons de um sino, que fazem vibrar todas as moléculas do ar ambiente.
+
+##### #️⃣ 25
+
+Longe de nós a ideia de materializar a Divindade. A imagem de um fluido inteligente universal evidentemente não passa de uma comparação apropriada a dar de Deus uma ideia mais exata do que os quadros que o apresentam debaixo de uma figura humana. Essa imagem se destina a fazer compreensível a possibilidade que tem Deus de estar em toda parte e de se ocupar com todas as coisas.
+
+##### #️⃣ 26
+
+Temos constantemente sob as vistas um exemplo que nos permite fazer ideia do modo por que talvez se exerça a ação de Deus sobre as partes mais íntimas de todos os seres e, conseguintemente, do modo por que lhe chegam as mais sutis impressões de nossa alma. Esse exemplo tiramo-lo de certa instrução que a tal respeito deu um Espírito.
+
+##### #️⃣ 27
+
+“O homem é um pequeno mundo, que tem como diretor o Espírito e como dirigido o corpo. Nesse universo, o corpo representará uma criação cujo Espírito seria Deus. (Compreendei bem que aqui há uma simples questão de analogia e não de identidade.) Os membros desse corpo, os diferentes órgãos que o compõem, os músculos, os nervos, as articulações são outras tantas individualidades materiais, se assim se pode dizer, localizadas em pontos especiais do corpo. Se bem seja considerável o número de suas partes constitutivas, de natureza tão variada e diferente, a ninguém é lícito supor que se possam produzir movimentos, ou uma impressão em qualquer lugar, sem que o Espírito tenha consciência do que ocorra. Há sensações diversas em muitos lugares simultaneamente? O Espírito as sente todas, distingue, analisa, assinala a cada uma a causa determinante e o ponto em que se produziu, tudo por meio do fluido perispirítico. “Análogo fenômeno ocorre entre Deus e a Criação. Deus está em toda parte, na natureza, como o Espírito está em toda parte, no corpo. Todos os elementos da Criação se acham em relação constante com Ele, como todas as células do corpo humano se acham em contato imediato com o ser espiritual. Não há, pois, razão para que fenômenos da mesma ordem não se produzam de maneira idêntica, num e noutro caso. “Um membro se agita: o Espírito o sente; uma criatura pensa: Deus o sabe. Todos os membros estão em movimento, os diferentes órgãos estão a vibrar; o Espírito se ressente de todas as manifestações, as distingue e localiza. As diferentes criações, as diferentes criaturas se agitam, pensam, agem diversamente: Deus sabe o que se passa e assina a cada um o que lhe diz respeito. “Daí se pode igualmente deduzir a solidariedade da matéria e da inteligência, a solidariedade entre si de todos os seres de um mundo, a de todos os mundos e, por fim, de todas as criações com o Criador.” (Quinemant, Sociedade de Paris, 1867.)
+
+##### #️⃣ 28
+
+Compreendemos o efeito: já é muito. Do efeito remontamos à causa e julgamos da sua grandeza pela grandeza do efeito. Escapa-nos, porém, a sua essência íntima, como a da causa de uma imensidade de fenômenos. Conhecemos os efeitos da eletricidade, do calor, da luz, da gravitação; calculamo-los e, entretanto, ignoramos a natureza íntima do princípio que os produz. [^18] Será então racional neguemos o princípio divino, porque não o compreendemos?
+
+[^18]:  N.E.: Os efeitos citados são objeto de estudo há tempos, e hoje já são bem mais compreendidos.
+
+##### #️⃣ 29
+
+Nada obsta a que se admita, para o princípio da soberana inteligência, um centro de ação, um foco principal a irradiar incessantemente, inundando o universo com seus eflúvios, como o Sol com a sua luz. Mas onde esse foco? É o que ninguém pode dizer. Provavelmente, não se acha fixado em determinado ponto, como não o está a sua ação, sendo também provável que percorra constantemente as regiões do espaço sem-fim. Se simples Espíritos têm o dom da ubiquidade, em Deus há de ser sem limites essa faculdade. Enchendo Deus o universo, poder-se-ia ainda admitir, a título de hipótese, que esse foco não precisa transportar-se, por se formar em todas as partes onde a soberana vontade julga conveniente que ele se produza, donde o poder dizer-se que está em toda parte e em parte nenhuma.
+
+##### #️⃣ 30
+
+Diante desses problemas insondáveis, cumpre que a nossa razão se humilhe. Deus existe: disso não podemos duvidar. É infinitamente justo e bom: essa a sua essência. A tudo se estende a sua solicitude: compreendemo-lo. Só o nosso bem, portanto, pode Ele querer, donde se segue que devemos confiar nele, isso é essencial. Quanto ao mais, esperemos que nos tenhamos tornado dignos de o compreender.
+
+#### A visão de Deus
+
+##### #️⃣ 31
+
+Se Deus está em toda parte, por que não o vemos? Vê-lo-emos quando deixarmos a Terra? Tais as perguntas que se formulam todos os dias. À primeira é fácil responder. Por serem limitadas as percepções dos nossos órgãos visuais, elas os tornam inaptos à visão de certas coisas, mesmo materiais. Assim é que alguns fluidos nos fogem totalmente à nossa visão e aos instrumentos de análise; entretanto, não duvidamos da existência deles. Vemos os efeitos da peste, mas não vemos o fluido que a transporta; [^19] vemos os corpos em movimento sob a influência da força de gravitação, mas não vemos essa força.
+
+[^19]: N.E.: Kardec escreveu de acordo com os conhecimentos da época, antes de 1894, ano em que se descobriu que a doença, peste bubônica, era devida à bactéria Yersinia pestis (em homenagem ao bacteriologista francês Alexandre Yersin, 1863–1943), que é transmitida ao homem pela pulga do rato.
+
+##### #️⃣ 32
+
+Os nossos órgãos materiais não podem perceber as coisas de essência espiritual. Unicamente com a visão espiritual é que podemos ver os Espíritos e as coisas do mundo imaterial. Somente a nossa alma, portanto, pode ter a percepção de Deus. Dar-se-á que ela o veja logo após a morte? A esse respeito, só as comunicações de além-túmulo nos podem instruir. Por elas sabemos que a visão de Deus constitui privilégio das mais purificadas almas e que bem poucas, ao deixarem o envoltório terrestre, se encontram no grau de desmaterialização necessária a tal efeito. Uma comparação vulgar tornará facilmente compreensível essa condição.
+
+##### #️⃣ 33
+
+Uma pessoa que se ache no fundo de um vale, envolvido por densa bruma, não vê o Sol. Entretanto, pela luz difusa, percebe a claridade do Sol. Se começa a subir a montanha, à medida que for ascendendo, o nevoeiro se irá dissipando e a luz ficará cada vez mais viva. Contudo, ainda não verá o Sol. Só depois que se haja elevado acima da camada brumosa e chegado a um ponto onde o ar esteja perfeitamente límpido, ela o contemplará em todo o seu esplendor. O mesmo se dá com a alma. O envoltório perispirítico, conquanto nos seja invisível e impalpável, é, com relação a ela, verdadeira matéria, ainda grosseira demais para certas percepções. Esse invólucro, porém, se espiritualiza, à proporção que a alma se eleva em moralidade. As imperfeições da alma são quais camadas nevoentas que lhe obscurecem a visão. Cada imperfeição de que ela se desfaz é uma mácula a menos; todavia, só depois de se haver depurado completamente é que goza da plenitude das suas faculdades.
+
+##### #️⃣ 34
+
+Sendo Deus a essência divina por excelência, unicamente os Espíritos que atingiram o mais alto grau de desmaterialização o podem perceber. Pelo fato de os Espíritos imperfeitos não verem a Deus, não se segue que eles estejam mais distantes de Deus do que os outros; esses Espíritos, como os demais, como todos os seres da natureza, se encontram mergulhados no fluido divino, do mesmo modo que nós o estamos na luz. O que há é que as imperfeições daqueles Espíritos são vapores que os impedem de vê-lo. Quando o nevoeiro se dissipar, vê-lo-ão resplandecer. Para isso, não lhes é preciso subir, nem procurá-lo nas profundezas do infinito. Desimpedida a visão espiritual das belidas que a obscureciam, eles o verão de todo lugar onde se achem, mesmo da Terra, porquanto Deus está em toda parte.
+
+##### #️⃣ 35
+
+O Espírito só se depura com o tempo, sendo as diversas encarnações o alambique em cujo fundo deixa de cada vez algumas impurezas. Com o abandonar o seu invólucro corpóreo, os Espíritos não se despojam instantaneamente de suas imperfeições, razão por que, depois da morte, não veem a Deus mais do que o viam quando vivos; mas, à medida que se depuram, têm dele uma intuição mais clara. Não o veem, mas compreendem-no melhor; a luz é menos difusa. Quando, pois, alguns Espíritos dizem que Deus lhes proíbe respondam a uma dada pergunta não é que Deus lhes apareça, ou dirija a palavra, para lhes ordenar ou proibir isto ou aquilo, não; eles, porém, o sentem; recebem os eflúvios do seu pensamento, como nos sucede com relação aos Espíritos que nos envolvem em seus fluidos, embora não os vejamos.
+
+##### #️⃣ 36
+
+Nenhum homem, conseguintemente, pode ver a Deus com os olhos da carne. Se essa graça fosse concedida a alguns, só o seria no estado de êxtase, quando a alma se acha tão desprendida dos laços da matéria que torna possível o fato durante a encarnação. Tal privilégio, aliás, exclusivamente pertenceria a almas de eleição, encarnadas em missão, que não em expiação. Mas como os Espíritos da mais elevada categoria refulgem de ofuscante brilho, pode dar-se que Espíritos menos elevados, encarnados ou desencarnados, maravilhados com o esplendor de que aqueles se mostram cercados, suponham estar vendo o próprio Deus. É como quem vê um ministro e o toma pelo seu soberano.
+
+##### #️⃣ 37
+
+Sob que aparência se apresenta Deus aos que se tornaram dignos de vê-lo? Será sob uma forma qualquer? Sob uma figura humana, ou como um foco de resplendente luz? A linguagem humana é impotente para dizê-lo, porque não existe para nós nenhum ponto de comparação capaz de nos facultar uma ideia de tal coisa. Somos quais cegos de nascença a quem procurassem inutilmente fazer compreendessem o brilho do Sol. A nossa linguagem é limitada pelas nossas necessidades e pelo círculo das nossas ideias; a dos selvagens não poderia descrever as maravilhas da civilização; a dos povos mais civilizados é extremamente pobre para descrever os esplendores dos céus, a nossa inteligência muito restrita para os compreender e a nossa vista, por muito fraca, ficaria deslumbrada.
 
 ### 📑 03 - O bem e o mal
 
-##### #️⃣ GEN-1-03-p1
+#### Origem do bem e do mal
 
-##### #️⃣ GEN-1-03-p2
+##### #️⃣ 01
 
-##### #️⃣ GEN-1-03-p3
+Sendo Deus o princípio de todas as coisas e sendo todo sabedoria, todo bondade, todo justiça, tudo o que dele procede há de participar dos seus atributos, porquanto o que é infinitamente sábio, justo e bom nada pode produzir que seja ininteligente, mau e injusto. O mal que observamos não pode ter nele a sua origem.
 
-##### #️⃣ GEN-1-03-p4
+##### #️⃣ 02
 
-##### #️⃣ GEN-1-03-p5
+Se o mal estivesse nas atribuições de um ser especial, quer se lhe chame Arimane, [^20] quer Satanás, ou ele seria igual a Deus, e, por conseguinte, tão poderoso quanto este, e de toda a eternidade como Ele, ou lhe seria inferior. No primeiro caso, haveria duas potências rivais, incessantemente em luta, procurando cada uma desfazer o que fizesse a outra, contrariando-se mutuamente, hipótese esta inconciliável com a unidade de vistas que se revela na estrutura do universo. No segundo caso, sendo inferior a Deus, aquele ser lhe estaria subordinado. Não podendo existir de toda a eternidade como Deus, sem ser igual a este, teria tido um começo. Se fora criado, só o poderia ter sido por Deus, que, então, houvera criado o Espírito do mal, o que implicaria negação da bondade infinita. (Veja-se: O céu e o inferno, cap. IX: Os demônios.)
 
-##### #️⃣ GEN-1-03-p6
+##### #️⃣ 03
 
-##### #️⃣ GEN-1-03-p7
+Entretanto, o mal existe e tem uma causa. Os males de toda espécie, físicos ou morais, que afligem a humanidade, formam duas categorias que importa distinguir: a dos males que o homem pode evitar e a dos que lhe independem da vontade. Entre os últimos, cumpre se incluam os flagelos naturais. O homem, cujas faculdades são restritas, não pode penetrar, nem abarcar o conjunto dos desígnios do Criador; aprecia as coisas do ponto de vista da sua personalidade, dos interesses factícios e convencionais que criou para si mesmo e que não se compreendem na ordem da natureza. Por isso é que, muitas vezes, se lhe afigura mau e injusto aquilo que consideraria justo e admirável, se lhe conhecesse a causa, o objetivo, o resultado definitivo. Pesquisando a razão de ser e a utilidade de cada coisa, verificará que tudo traz o sinete da sabedoria infinita e se dobrará a essa sabedoria, mesmo com relação ao que lhe não seja compreensível.
 
-##### #️⃣ GEN-1-03-p8
+##### #️⃣ 04
 
-##### #️⃣ GEN-1-03-p9
+O homem recebeu em partilha uma inteligência com cujo auxílio lhe é possível conjurar, ou, pelo menos, atenuar muito os efeitos de todos os flagelos naturais. Quanto mais saber ele adquire e mais se adianta em civilização, tanto menos desastrosos se tornam os flagelos. Com uma organização sábia e previdente, chegará mesmo a lhes neutralizar as consequências, quando não possam ser inteiramente evitados. Assim, com referência, até, aos flagelos que têm certa utilidade para a ordem geral da natureza e para o futuro, mas que, no presente, causam danos, facultou Deus ao homem os meios de lhes paralisar os efeitos. Assim é que ele saneia as regiões insalubres, imuniza contra os miasmas pestíferos, fertiliza terras áridas e se esforça em preservá-las das inundações; constrói habitações mais salubres, mais sólidas para resistirem aos ventos tão necessários à purificação da atmosfera e se coloca ao abrigo das intempéries. É assim, finalmente, que, pouco a pouco, a necessidade lhe fez criar as ciências, por meio das quais melhora as condições de habitabilidade do globo e aumenta o seu próprio bem-estar.
 
-##### #️⃣ GEN-1-03-p10
+##### #️⃣ 05
 
-##### #️⃣ GEN-1-03-p11
+Tendo o homem que progredir, os males a que se acha exposto são um estimulante para o exercício da sua inteligência, de todas as suas faculdades físicas e morais, incitando-o a procurar os meios de evitá-los. Se ele nada houvesse de temer, nenhuma necessidade o induziria a procurar o melhor; o espírito se lhe entorpeceria na inatividade; nada inventaria, nem descobriria. A dor é o aguilhão que o impele para a frente, na senda do progresso.
 
-##### #️⃣ GEN-1-03-p12
+##### #️⃣ 06
 
-##### #️⃣ GEN-1-03-p13
+Porém, os males mais numerosos são os que o homem cria pelos seus vícios, os que provêm do seu orgulho, do seu egoísmo, da sua ambição, da sua cupidez, de seus excessos em tudo. Aí a causa das guerras e das calamidades que estas acarretam, das dissensões, das injustiças, da opressão do fraco pelo forte, da maior parte, afinal, das enfermidades. Deus promulgou leis plenas de sabedoria, tendo por único objetivo o bem. Em si mesmo encontra o homem tudo o que lhe é necessário para cumpri-las. A consciência lhe traça a rota, a lei divina lhe está gravada no coração e, ademais, Deus lha lembra constantemente por intermédio de seus messias e profetas, de todos os Espíritos encarnados que trazem a missão de o esclarecer, moralizar e melhorar e, nestes últimos tempos, pela multidão dos Espíritos desencarnados que se manifestam em toda parte. Se o homem se conformasse rigorosamente com as Leis divinas, não há duvidar de que se pouparia aos mais agudos males e viveria ditoso na Terra. Se assim procede, é por virtude do seu livre-arbítrio: sofre então as consequências do seu proceder. (O evangelho segundo o espiritismo, cap. V, item 4 e seguintes.)
 
-##### #️⃣ GEN-1-03-p14
+##### #️⃣ 07
 
-##### #️⃣ GEN-1-03-p15
+Entretanto, Deus, todo bondade, pôs o remédio ao lado do mal, isto é, faz que do próprio mal saia o bem. Um momento chega em que o excesso do mal moral se torna intolerável e impõe ao homem a necessidade de mudar de vida. Instruído pela experiência, ele se sente compelido a procurar no bem o remédio, sempre por efeito do seu livre-arbítrio. Quando toma melhor caminho, é por sua vontade e porque reconheceu os inconvenientes do outro. A necessidade, pois, o constrange a melhorar-se moralmente, para ser mais feliz, do mesmo modo que o constrangeu a melhorar as condições materiais da sua existência (item 5).
 
-##### #️⃣ GEN-1-03-p16
+##### #️⃣ 08
 
-##### #️⃣ GEN-1-03-p17
+Pode dizer-se que o mal é a ausência do bem, como o frio é a ausência do calor. Assim como o frio não é um fluido especial, também o mal não é atributo distinto; um é o negativo do outro. Onde não existe o bem, forçosamente existe o mal. Não praticar o mal, já é um princípio do bem. Deus somente quer o bem; só do homem procede o mal. Se na Criação houvesse um ser preposto ao mal, ninguém o poderia evitar; mas, tendo o homem a causa do mal em SI MESMO, tendo simultaneamente o livre-arbítrio e por guia as Leis divinas, evitá-lo-á sempre que o queira. Tomemos para comparação um fato vulgar. Sabe um proprietário que nos confins de suas terras há um lugar perigoso, onde poderia perecer ou ferir-se quem por lá se aventurasse. Que faz, a fim de prevenir os acidentes? Manda colocar perto um aviso, proibindo que prossigam os que por ali passem, devido ao perigo. Aí está a lei, que é sábia e previdente. Se, apesar de tudo, um imprudente desatende o aviso, vai além do ponto onde este se encontra e sai-se mal, de quem se pode ele queixar, senão de si próprio? Assim sucede com todo o mal: evitá-lo-ia o homem se cumprisse as Leis divinas. Por exemplo: Deus pôs limite à satisfação das necessidades; por meio da saciedade o homem é avisado desse limite; se o ultrapassa, fá-lo voluntariamente. As doenças, as enfermidades, a morte, que daí podem resultar, provêm da sua imprevidência, não de Deus.
 
-##### #️⃣ GEN-1-03-p18
+##### #️⃣ 09
 
-##### #️⃣ GEN-1-03-p19
+Decorrendo, o mal, das imperfeições do homem e tendo sido este criado por Deus, dir-se-á, Deus não deixa de ter criado, se não o mal, pelo menos, a causa do mal; se houvesse criado perfeito o homem, o mal não existiria. Se fora criado perfeito, o homem fatalmente penderia para o bem. Ora, em virtude do seu livre-arbítrio, ele não pende fatalmente nem para o bem, nem para o mal. Quis Deus que ele ficasse sujeito à lei do progresso e que o progresso resulte do seu trabalho, a fim de que lhe pertença o fruto deste, da mesma maneira que lhe cabe a responsabilidade do mal que por sua vontade pratique. A questão, pois, consiste em saber-se qual é, no homem, a origem da sua propensão para o mal. [^21]
 
-##### #️⃣ GEN-1-03-p20
+[^21]: Nota de Allan Kardec: O erro está em pretender-se que a alma haja saído perfeita das mãos do Criador, quando este, ao contrário, quis que a perfeição resulte da depuração gradual do Espírito e seja obra sua. Houve Deus por bem que a alma, dotada de livre-arbítrio, pudesse optar entre o bem e o mal e chegasse às suas finalidades últimas de forma militante e resistindo ao mal. Se houvera criado a alma tão perfeita quanto Ele e, ao sair-lhe ela das mãos, a houvesse associado à sua beatitude eterna, Deus tê-la-ia feito, não à sua imagem, mas semelhante a si próprio. (Bonnamy, A razão do espiritismo, cap. VI.)
 
-##### #️⃣ GEN-1-03-p21
+##### #️⃣ 10
 
-##### #️⃣ GEN-1-03-p22
+Estudando-se todas as paixões e, mesmo, todos os vícios, vê-se que as raízes de umas e outros se acham no instinto de conservação, instinto que se encontra em toda a pujança nos animais e nos seres primitivos mais próximos da animalidade, nos quais ele exclusivamente domina, sem o contrapeso do senso moral, por não ter ainda o ser nascido para a vida intelectual. O instinto se enfraquece, à medida que a inteligência se desenvolve, porque esta domina a matéria.
+O Espírito tem por destino a vida espiritual, porém, nas primeiras fases da sua existência corpórea, somente às exigências materiais lhe cumpre satisfazer e, para tal, o exercício das paixões constitui uma necessidade para a conservação da espécie e dos indivíduos, materialmente falando. Mas, uma vez saído desse período, outras necessidades se lhe apresentam, a princípio semimorais e semimateriais, depois exclusivamente morais. É então que o Espírito exerce domínio sobre a matéria, sacode-lhe o jugo, avança pela senda providencial que se lhe acha traçada e se aproxima do seu destino final. Se, ao contrário, ele se deixa dominar pela matéria, atrasa-se e se identifica com o bruto. Nessa situação, o que era outrora um bem, porque era uma necessidade da sua natureza, transforma-se num mal, não só porque já não constitui uma necessidade, como porque se torna prejudicial à espiritualização do ser. Muita coisa, que é qualidade na criança, torna-se defeito no adulto. O mal é, pois, relativo e a responsabilidade é proporcionada ao grau de adiantamento. Todas as paixões têm, portanto, uma utilidade providencial, pois, se assim não fosse, Deus teria feito coisas inúteis e até nocivas. No abuso é que reside o mal e o homem abusa em virtude do seu livre-arbítrio. Mais tarde, esclarecido pelo seu próprio interesse, livremente escolhe entre o bem e o mal.
 
-##### #️⃣ GEN-1-03-p23
+#### O instinto e a inteligência
 
-##### #️⃣ GEN-1-03-p24
+##### #️⃣ 11
+
+Qual a diferença entre o instinto e a inteligência? Onde acaba um e o outro começa? Será o instinto uma inteligência rudimentar, ou será uma faculdade distinta, um atributo exclusivo da matéria? O instinto é a força oculta que solicita os seres orgânicos a atos espontâneos e involuntários, tendo em vista a conservação deles. Nos atos instintivos não há reflexão, nem combinação, nem premeditação. É assim que a planta procura o ar, se volta para a luz, dirige suas raízes para a água e para a terra nutriente; que a flor se abre e fecha alternadamente, conforme se lhe faz necessário; que as plantas trepadeiras se enroscam em torno daquilo que lhes serve de apoio, ou se lhe agarram com as gavinhas. É pelo instinto que os animais são avisados do que lhes é útil ou nocivo; que buscam, conforme a estação, os climas propícios; que constroem, sem ensino prévio, com mais ou menos arte, segundo as espécies, leitos macios e abrigos para as suas progênies, armadilhas para apanhar a presa de que se nutrem; que manejam destramente as armas ofensivas e defensivas de que são providos; que os sexos se aproximam; que a mãe choca os filhos e que estes procuram o seio materno. No homem, no começo da vida o instinto domina com exclusividade; é por instinto que a criança faz os primeiros movimentos, que toma o alimento, que grita para exprimir as suas necessidades, que imita o som da voz, que tenta falar e andar. No próprio adulto, certos atos são instintivos, tais como os movimentos espontâneos para evitar um risco, para fugir a um perigo, para manter o equilíbrio do corpo; tais ainda o piscar das pálpebras para moderar o brilho da luz, a respiração etc.
+
+##### #️⃣ 12
+
+A inteligência se revela por atos voluntários, refletidos, premeditados, combinados, de acordo com a oportunidade das circunstâncias. É incontestavelmente um atributo exclusivo da alma. Todo ato maquinal é instintivo; o ato que denota reflexão, combinação, deliberação é inteligente. Um é livre, o outro não o é. O instinto é guia seguro, que nunca se engana; a inteligência, pelo simples fato de ser livre, está, por vezes, sujeita a errar. Ao ato instintivo falta o caráter do ato inteligente; revela, entretanto, uma causa inteligente, essencialmente apta a prever. Se se admitir que o instinto procede da matéria, ter-se-á de admitir que a matéria é inteligente, até mesmo bem mais inteligente e previdente do que a alma, pois que o instinto não se engana, ao passo que a inteligência se equivoca. Se se considerar o instinto uma inteligência rudimentar, como se há de explicar que, em certos casos, seja superior à inteligência que raciocina? Como explicar que torne possível se executem atos que esta não pode realizar? Se ele é atributo de um princípio espiritual de especial natureza, qual vem a ser esse princípio? Pois que o instinto se apaga, dar-se-á que esse princípio se destrua? Se os animais são dotados apenas de instinto, não tem solução o destino deles e nenhuma compensação os seus sofrimentos, o que não estaria de acordo nem com a justiça, nem com a bondade de Deus. (Cap. II, 19.)
+
+##### #️⃣ 13
+
+Segundo outros sistemas, o instinto e a inteligência procederiam de um único princípio. Chegado a certo grau de desenvolvimento, esse princípio, que primeiramente apenas tivera as qualidades do instinto, passaria por uma transformação que lhe daria as da inteligência livre. Se fosse assim, no homem inteligente que perde a razão e entra a ser guiado exclusivamente pelo instinto, a inteligência voltaria ao seu estado primitivo e, quando o homem recobrasse a razão, o instinto se tornaria inteligência e assim alternadamente, a cada acesso, o que não é admissível. Aliás, muitas vezes o instinto e a inteligência se revelam simultaneamente no mesmo ato. No caminhar, por exemplo, o movimento das pernas é instintivo; o homem põe maquinalmente um pé à frente do outro, sem nisso pensar; quando, porém, ele quer acelerar ou demorar o passo, levantar o pé ou desviar-se de um tropeço, há cálculo, combinação; ele age com deliberado propósito. A impulsão involuntária do movimento é o ato instintivo; a calculada direção do movimento é o ato inteligente. O animal carnívoro é impelido pelo instinto a se alimentar de carne, mas as precauções que toma e que variam conforme as circunstâncias, para segurar a presa, a sua previdência das eventualidades são atos da inteligência.
+
+##### #️⃣ 14
+
+Outra hipótese que, em suma, se conjuga perfeitamente à ideia da unidade de princípio, ressalta do caráter essencialmente previdente do instinto e concorda com o que o Espiritismo ensina, no tocante às relações do mundo espiritual com o mundo corpóreo. Sabe-se agora que muitos Espíritos desencarnados têm por missão velar pelos encarnados, dos quais se constituem protetores e guias; que os envolvem nos seus eflúvios fluídicos; que o homem age muitas vezes de modo inconsciente, sob a ação desses eflúvios. Sabe-se, ademais, que o instinto, que por si mesmo produz atos inconscientes, predomina nas crianças e, em geral, nos seres cuja razão é fraca. Ora, segundo esta hipótese, o instinto não seria atributo nem da alma, nem da matéria; não pertenceria propriamente ao ser vivo, seria efeito da ação direta dos protetores invisíveis que supririam a imperfeição da inteligência, provocando os atos inconscientes necessários à conservação do ser. Seria qual a andadeira com que se amparam as crianças que ainda não sabem andar. Então, do mesmo modo que se deixa gradualmente de usar a andadeira, à medida que a criança se equilibra sozinha, os Espíritos protetores deixam entregues a si mesmos os seus protegidos, à medida que estes se tornam aptos a guiar-se pela própria inteligência. Assim, o instinto, longe de ser produto de uma inteligência rudimentar e incompleta, sê-lo-ia de uma inteligência estranha, na plenitude da sua força, inteligência protetora, que supriria a insuficiência, quer de uma inteligência mais jovem, que aquela compeliria a fazer, inconscientemente, para seu bem, o que ainda fosse incapaz de fazer por si mesma, quer de uma inteligência madura, porém, momentaneamente tolhida no uso de suas faculdades, como se dá com o homem na infância e nos casos de idiotia e de afecções mentais. Diz-se proverbialmente que há um deus para as crianças, para os loucos e para os ébrios. É mais veraz do que se supõe esse ditado. Aquele deus, outro não é senão o Espírito protetor, que vela pelo ser incapaz de se proteger, utilizando-se da sua própria razão.
+
+##### #️⃣ 15
+
+Nesta ordem de ideias, ainda mais longe se pode ir. Por muito racional que seja, essa teoria não resolve todas as dificuldades da questão. Se observarmos os efeitos do instinto, notaremos, em primeiro lugar, uma unidade de vistas e de conjunto, uma segurança de resultados, que cessam logo que a inteligência livre substitui o instinto. Demais, reconheceremos profunda sabedoria na apropriação tão perfeita e tão constante das faculdades instintivas às necessidades de cada espécie. Semelhante unidade de vistas não poderia existir sem a unidade de pensamento e esta é incompatível com a diversidade das aptidões individuais; só ela poderia produzir esse conjunto tão harmonioso que se realiza desde a origem dos tempos e em todos os climas, com uma regularidade, uma precisão matemáticas, cuja ausência jamais se nota. A uniformidade no que resulta das faculdades instintivas é um fato característico, que forçosamente implica a unidade da causa. Se a causa fosse inerente a cada individualidade, haveria tantas variedades de instintos quantos fossem os indivíduos, desde a planta até o homem. Um efeito geral, uniforme e constante, há de ter uma causa geral, uniforme e constante; um efeito que atesta sabedoria e previdência há de ter uma causa sábia e previdente. Ora, uma causa dessa natureza, sendo por força inteligente, não pode ser exclusivamente material. Não se nos deparando nas criaturas, encarnadas ou desencarnadas, as qualidades necessárias à produção de tal resultado, temos que subir mais alto, isto é, ao próprio Criador. Se nos reportamos à explicação dada sobre a maneira por que se pode conceber a ação providencial (cap. II, item 24); se figurarmos todos os seres penetrados do fluido divino, soberanamente inteligente, compreenderemos a sabedoria previdente e a unidade de vistas que presidem a todos os movimentos instintivos que se efetuam para o bem de cada indivíduo. Tanto mais ativa é essa solicitude, quanto menos recursos tem o indivíduo em si mesmo e na sua inteligência. Por isso é que ela se mostra maior e mais absoluta nos animais e nos seres inferiores, do que no homem. Segundo essa teoria, compreende-se que o instinto seja um guia seguro. O instinto materno, o mais nobre de todos, que o materialismo rebaixa ao nível das forças atrativas da matéria, fica realçado e enobrecido. Em razão das suas consequências, não devia ele ser entregue às eventualidades caprichosas da inteligência e do livre-arbítrio. Por intermédio da mãe, o próprio Deus vela pelas suas criaturas que nascem.
+
+##### #️⃣ 16
+
+Esta teoria de nenhum modo anula o papel dos Espíritos protetores, cujo concurso é fato observado e comprovado pela experiência; mas deve-se notar que a ação desses Espíritos é essencialmente individual; que se modifica segundo as qualidades próprias do protetor e do protegido e que em parte nenhuma apresenta a uniformidade e a generalidade do instinto. Deus, em sua sabedoria, conduz Ele próprio os cegos, porém confia a inteligências livres o cuidado de guiar os clarividentes, para deixar a cada um a responsabilidade de seus atos. A missão dos Espíritos protetores constitui um dever que eles aceitam voluntariamente e lhes é um meio de se adiantarem, dependendo o adiantamento da forma por que o desempenhem.
+
+##### #️⃣ 17
+
+Todas essas maneiras de considerar o instinto são forçosamente hipotéticas e nenhuma apresenta caráter seguro de autenticidade, para ser tida como solução definitiva. A questão, sem dúvida, será resolvida um dia, quando se houverem reunido os elementos de observação que ainda faltam. Até lá, temos que limitar-nos a submeter as diversas opiniões ao cadinho da razão e da lógica e esperar que a luz se faça. A solução que mais se aproxima da verdade será decerto a que melhor condiga com os atributos de Deus, isto é, com a bondade suprema e a suprema justiça. (Cap. II, item 19.)
+
+##### #️⃣ 18
+
+Sendo o instinto o guia e as paixões as molas da alma no período inicial do seu desenvolvimento, por vezes aquele e estas se confundem nos efeitos. Há, contudo, entre esses dois princípios, diferenças que muito importa se considerem. O instinto é guia seguro, sempre bom. Pode, ao cabo de certo tempo, tornar-se inútil, porém nunca prejudicial. Enfraquece-se pela predominância da inteligência. As paixões, nas primeiras idades da alma, têm de comum com o instinto o serem as criaturas solicitadas por uma força igualmente inconsciente. As paixões nascem principalmente das necessidades do corpo e dependem, mais do que o instinto, do organismo. O que, acima de tudo, as distingue do instinto é que são individuais e não produzem, como este último, efeitos gerais e uniformes; variam, ao contrário, de intensidade e de natureza, conforme os indivíduos. São úteis, como estimulante, até a eclosão do senso moral, que faz nasça de um ser passivo, um ser racional. Nesse momento, as paixões tornam-se não só inúteis, como nocivas ao progresso do Espírito, cuja desmaterialização retardam. Abrandam-se com o desenvolvimento da razão.
+
+##### #️⃣ 19
+
+O homem que constantemente só agisse pelo instinto poderia ser muito bom, mas conservaria adormecida a sua inteligência. Seria qual criança que não deixasse as andadeiras e não soubesse utilizar-se de seus membros. Aquele que não domina as suas paixões pode ser muito inteligente, porém, ao mesmo tempo, muito mau. O instinto se aniquila por si mesmo; as paixões somente pelo esforço da vontade podem domar-se.
+
+#### Destruição dos seres vivos uns pelos outros
+
+##### #️⃣ 20
+
+A destruição recíproca dos seres vivos é, dentre as leis da natureza, uma das que, à primeira vista, menos parecem conciliar-se com a Bondade de Deus. Pergunta-se por que lhes criou Ele a necessidade de mutuamente se destruírem, para se alimentarem uns à custa dos outros. Para quem apenas vê a matéria e restringe à vida presente a sua visão, há de isso, com efeito, parecer uma imperfeição na obra divina. É que, em geral, os homens apreciam a perfeição de Deus do ponto de vista humano; medindo-lhe a sabedoria pelo juízo que dela formam, pensam que Deus não poderia fazer coisa melhor do que eles próprios fariam. Não lhes permitindo a curta visão, de que dispõem, apreciar o conjunto, não compreendem que um bem real possa decorrer de um mal aparente. Só o conhecimento do princípio espiritual, considerado em sua verdadeira essência, e o da grande lei de unidade, que constitui a harmonia da Criação, pode dar ao homem a chave desse mistério e mostrar-lhe a sabedoria providencial e a harmonia, exatamente onde apenas vê uma anomalia e uma contradição.
+
+##### #️⃣ 21
+
+A verdadeira vida, tanto do animal como do homem, não está no invólucro corporal, do mesmo que não está no vestuário. Está no princípio inteligente que preexiste e sobrevive ao corpo. Esse princípio necessita do corpo para se desenvolver pelo trabalho que lhe cumpre realizar sobre a matéria bruta. O corpo se consome nesse trabalho, mas o Espírito não se gasta; ao contrário, sai dele cada vez mais forte, mais lúcido e mais apto. Que importa, pois, que o Espírito mude mais ou menos frequentemente de envoltório?! Não deixa por isso de ser Espírito. É precisamente como se um homem mudasse cem vezes no ano as suas vestes. Não deixaria por isso de ser homem. Por meio do incessante espetáculo da destruição, ensina Deus aos homens o pouco caso que devem fazer do envoltório material e lhes suscita a ideia da vida espiritual, fazendo que a desejem como uma compensação. Objetar-se-á: não podia Deus chegar ao mesmo resultado por outros meios, sem constranger os seres vivos a se destruírem mutuamente? Desde que na sua obra tudo é sabedoria, devemos supor que esta sabedoria não existirá mais num ponto do que noutros; se não o compreendemos assim, devemos atribuí-lo à nossa falta de adiantamento. Contudo, podemos procurar a pesquisa da razão do que nos pareça defeituoso, tomando por bússola este princípio: Deus há de ser infinitamente justo e sábio. Procuremos, portanto, em tudo, a sua justiça e a sua sabedoria e curvemo-nos diante do que ultrapasse o nosso entendimento.
+
+##### #️⃣ 22
+
+Uma primeira utilidade, que se apresenta de tal destruição, utilidade, sem dúvida, puramente física, é esta: os corpos orgânicos só se conservam com o auxílio das matérias orgânicas, matérias que contêm os elementos nutritivos necessários à sua transformação. Como instrumentos de ação do princípio inteligente, os corpos precisam ser constantemente renovados, a Providência faz que sirvam à sua mútua manutenção. Eis por que os seres se nutrem uns dos outros. Mas é o corpo que se nutre do corpo, sem que o Espírito se aniquile ou altere, fica apenas despojado do seu envoltório. [^22]
+
+[^22]:  Nota de Allan Kardec: Veja-se: Revista espírita, agosto de 1864, Extinção das raças.
+
+##### #️⃣ 23
+
+Há também considerações morais de ordem elevada. É necessária a luta para o desenvolvimento do Espírito. Na luta é que ele exercita suas faculdades. O que ataca em busca do alimento e o que se defende para conservar a vida usam de habilidade e inteligência, aumentando, em consequência, suas forças intelectuais. Um dos dois sucumbe; mas, em realidade, que foi o que o mais forte ou o mais destro tirou ao mais fraco? A veste de carne, nada mais; ulteriormente, o Espírito, que não morreu, tomará outra.
+
+##### #️⃣ 24
+
+Nos seres inferiores da Criação, naqueles a quem ainda falta o senso moral, nos quais a inteligência ainda não substituiu o instinto, a luta não pode ter por móvel senão a satisfação de uma necessidade material. Ora, uma das mais imperiosas dessas necessidades é a da alimentação. Eles, pois, lutam unicamente para viver, isto é, para fazer ou defender uma presa, visto que nenhum móvel mais elevado os poderia estimular. É nesse primeiro período que a alma se elabora e ensaia para a vida. No homem, há um período de transição em que ele mal se distingue do bruto. Nas primeiras idades, domina o instinto animal e a luta ainda tem por móvel a satisfação das necessidades materiais. Mais tarde, contrabalançam-se o instinto animal e o sentimento moral; luta então o homem, não mais para se alimentar, porém, para satisfazer à sua ambição, ao seu orgulho, a sua necessidade de dominar. Para isso, ainda lhe é preciso destruir. Todavia, à medida que o senso moral prepondera, desenvolve-se a sensibilidade, diminui a necessidade de destruir, acaba mesmo por desaparecer, por se tornar odiosa essa necessidade. O homem ganha horror ao sangue. Contudo, a luta é sempre necessária ao desenvolvimento do Espírito, pois, mesmo chegando a esse ponto, que nos parece culminante, ele ainda está longe de ser perfeito. Só à custa de sua atividade que o Espírito adquire conhecimento, experiência e se despoja dos últimos vestígios da animalidade. Mas, nessa ocasião, a luta, de sangrenta e brutal que era, se torna puramente intelectual. O homem luta contra as dificuldades, não mais contra os seus semelhantes. [^23]
+
+[^23]: Nota de Allan Kardec: Sem prejulgar das consequências que se possam tirar desse princípio, apenas quisemos demonstrar, mediante essa explicação, que a destruição de uns seres vivos por outros em nada infirma a sabedoria divina e que, nas leis da natureza, tudo se encadeia. Esse encadeamento forçosamente se quebra, desde que se abstraia do princípio espiritual, razão por que muitas questões permanecem insolúveis, por só se levar em conta a matéria. As doutrinas materialistas trazem em si o princípio de sua própria destruição; têm contra si não só o antagonismo em que se acham com as aspirações da universalidade dos homens e suas consequências morais, que farão sejam elas, as doutrinas, repelidas como dissolventes da sociedade, mas também a necessidade que o homem experimenta de se inteirar de tudo o que resulta do progresso. O desenvolvimento intelectual conduz o homem à pesquisa das causas. Ora, por pouco que ele reflita, não tardará a reconhecer a impotência do materialismo para tudo explicar. Como é possível que doutrinas que não satisfazem ao coração, nem a razão, nem à inteligência, que deixam problemáticas as mais vitais questões, venham a prevalecer? O progresso das ideias matará o materialismo, como matou o fanatismo.
 
 ### 📑 04 - Papel da Ciência na Gênese
 
-##### #️⃣ GEN-1-04-p1
+##### #️⃣ 01
 
-##### #️⃣ GEN-1-04-p2
+A história da origem de quase todos os povos antigos se confunde com a da sua religião, é por isso que seus primeiros livros versavam sobre religião. E como todas as religiões se ligam ao princípio das coisas, que é também o da humanidade, elas deram, sobre a formação e a ordem do universo, explicações em concordância com o estado dos conhecimentos da época e de seus fundadores. Daí resultou que os primeiros livros sagrados foram ao mesmo tempo os primeiros livros de ciência, como foram, durante largo período, o código único das leis civis.
 
-##### #️⃣ GEN-1-04-p3
+##### #️⃣ 02
 
-##### #️⃣ GEN-1-04-p4
+Nas eras primitivas, sendo necessariamente muito imperfeitos os meios de observação, muito eivadas de erros grosseiros haviam de ser as primeiras teorias sobre o sistema do mundo. Mas, ainda quando esses meios fossem tão completos quanto o são hoje, os homens não teriam sabido utilizá-los. Aliás, tais meios não podiam ser senão fruto do desenvolvimento da inteligência e do consequente conhecimento das leis da natureza. À medida que o homem se foi adiantando no conhecimento dessas leis, também foi penetrando os mistérios da criação e retificando as ideias que formara acerca da origem das coisas.
 
-##### #️⃣ GEN-1-04-p5
+##### #️⃣ 03
 
-##### #️⃣ GEN-1-04-p6
+. Impotente se mostrou o homem para resolver o problema da Criação, até o momento em que a Ciência lhe forneceu para isso a chave. Teve de esperar que a Astronomia lhe abrisse as portas do espaço infinito e lhe permitisse mergulhar aí o olhar; que, pelo poder de cálculo, determinasse com rigorosa exatidão o movimento, a posição, o volume, a natureza e o papel dos corpos celestes; que a Física lhe revelasse as leis da gravitação, do calor, da luz e da eletricidade; que a Química lhe mostrasse as transformações da matéria e a Mineralogia os materiais que formam a superfície do globo; que a Geologia lhe ensinasse a ler, nas camadas terrestres, a formação gradual desse mesmo globo. À Botânica, à Zoologia, à Paleontologia, à Antropologia coube iniciá-lo na filiação e sucessão dos seres organizados. Com a Arqueologia pôde ele acompanhar os traços que a humanidade deixou através das idades. Numa palavra, completando-se umas às outras, todas as ciências houveram de contribuir com o que era indispensável para o conhecimento da história do mundo. Em falta dessas contribuições, teve o homem como guia as suas primeiras hipóteses. Por isso, antes que ele entrasse na posse daqueles elementos de apreciação, todos os comentadores da Gênese, cuja razão esbarrava em impossibilidades materiais, giravam dentro de um círculo, sem conseguirem dele sair. Só o lograram, quando a Ciência abriu caminho, fendendo o velho edifício das crenças. Tudo então mudou de aspecto. Uma vez achado o fio condutor, as dificuldades prontamente se aplanaram. Em vez de uma Gênese imaginária, surgiu uma Gênese positiva e, de certo modo, experimental. O campo do universo se distendeu ao infinito. Acompanhou-se a formação gradual da Terra e dos astros, segundo leis eternas e imutáveis, que demonstram muito melhor a grandeza e a sabedoria de Deus, do que uma criação miraculosa, tirada repentinamente do nada, qual mutação à vista, por efeito de súbita ideia da Divindade, após uma eternidade de inação. Pois que é impossível se conceba a Gênese sem os dados que a Ciência fornece, pode dizer-se com inteira verdade que: a Ciência é chamada a constituir a verdadeira Gênese, segundo a lei da natureza.
 
-##### #️⃣ GEN-1-04-p7
+##### #️⃣ 04
 
-##### #️⃣ GEN-1-04-p8
+No ponto a que chegou no século XIX, venceu a Ciência todas as dificuldades do problema da Gênese? Não, decerto; mas não há contestar que destruiu, sem remissão, todos os erros capitais e lhe lançou os fundamentos essenciais sobre dados irrecusáveis. Os pontos ainda duvidosos não passam, a bem dizer, de questões de minúcias, que a sua solução, qualquer que venha a ser no futuro, não poderá prejudicar o conjunto. Ademais, malgrado os recursos que ela há tido à sua disposição, faltou-lhe, até agora, um elemento importante, sem o qual jamais a obra poderia completar-se.
 
-##### #️⃣ GEN-1-04-p9
+##### #️⃣ 05
 
-##### #️⃣ GEN-1-04-p10
+De todas as Gêneses antigas, a que mais se aproxima dos modernos dados científicos, apesar dos erros que contém, que são demonstrados hoje até a evidência, é incontestavelmente a de Moisés. Alguns desses erros são mesmo mais aparentes do que reais e provêm, ou de falsa interpretação atribuída a certos termos, cuja primitiva significação se perdeu, ao passarem de língua em língua pela tradução, ou a acepção deles mudou com os costumes dos povos, ou, também, decorrem da forma alegórica peculiar ao estilo oriental e que foi tomada ao pé da letra, em vez de se lhe procurar o espírito, o significado mais fiel.
 
-##### #️⃣ GEN-1-04-p11
+##### #️⃣ 06
 
-##### #️⃣ GEN-1-04-p12
+A Bíblia, evidentemente, encerra fatos que a razão, desenvolvida pela Ciência, não poderia hoje aceitar e outros que parecem estranhos e repugnantes, pois derivam de costumes que já não são os nossos. Mas, a par disso, haveria parcialidade em se não reconhecer que ela guarda grandes e belas coisas. A alegoria ocupa ali considerável espaço, ocultando sob o seu véu sublimes verdades, que se patenteiam, desde que se desça ao âmago do pensamento, pois que logo desaparece o absurdo. Por que então não se lhe ergueu mais cedo o véu? De um lado, por falta de luzes que só a Ciência e uma sã filosofia podiam fornecer e, de outro lado, pelo princípio da imutabilidade absoluta da fé, consequência de um respeito demasiado cego pela letra, ao qual a razão deveria se submeter, e, assim, pelo temor de comprometer a estrutura das crenças, erguida sobre o sentido literal. Partindo tais crenças de um ponto primitivo, houve o receio de que, se se rompesse o primeiro anel da cadeia, todas as malhas da rede acabassem separando-se. Eis por que, apesar de tudo, os olhos se fecharam, mas fechar os olhos ao perigo não é evitá-lo. Quando uma construção se inclina, não manda a prudência que se substituam imediatamente as pedras ruins por pedras boas, em vez de se esperar, pelo respeito que infunda a vetustez do edifício, que o mal se torne irremediável e que se faça preciso reconstruí-lo de cima a baixo?
 
-##### #️⃣ GEN-1-04-p13
+##### #️⃣ 07
 
-##### #️⃣ GEN-1-04-p14
+. Levando suas investigações às entranhas da Terra e às profundezas dos céus, demonstrou a Ciência, de maneira irrefragável, os erros da Gênese moisaica tomada ao pé da letra e a impossibilidade material de se terem as coisas passado como são ali textualmente referidas. Assim procedendo, a Ciência desferiu fundo golpe nas crenças seculares. A fé ortodoxa ficou combalida, porque julgou que lhe tiravam a pedra fundamental. Mas com quem havia de estar a razão: com a Ciência, que caminhava prudente e progressivamente pelos terrenos sólidos dos algarismos e da observação, sem nada afirmar antes de ter em mãos as provas, ou com uma narrativa escrita quando faltavam absolutamente os meios de observação? No fim de contas, quem há de levar a melhor: aquele que diz 2 e 2 fazem 5 e se nega a verificar, ou aquele que diz que 2 e 2 fazem 4 e o prova?
 
-##### #️⃣ GEN-1-04-p15
+##### #️⃣ 08
 
-##### #️⃣ GEN-1-04-p16
+Mas, objetam, se a Bíblia é uma revelação divina, então Deus se enganou. Se não é uma revelação divina, carece de autoridade e a religião desmorona, à falta de base. Uma de duas: ou a Ciência está em erro, ou tem razão. Se tem razão, não pode fazer seja verdadeira uma opinião que lhe é contrária. Não há revelação que se possa sobrepor à autoridade dos fatos. Incontestavelmente, não é possível que Deus, sendo todo verdade, induza os homens em erro, nem ciente, nem inscientemente, pois, do contrário, não seria Deus. Logo, se os fatos contradizem as palavras que são atribuídas a Ele, o que se deve logicamente concluir é que Ele não as pronunciou, ou que tais palavras foram entendidas em sentido oposto ao que lhes é próprio. Se, com semelhantes contradições, a religião sofre dano, a culpa não é da Ciência, que não pode fazer que o que é deixe de ser; mas dos homens por haverem prematuramente estabelecido dogmas absolutos, de cujo prevalecimento hão feito questão de vida ou de morte, sobre hipóteses suscetíveis de serem desmentidas pela experiência. Há coisas com cujo sacrifício temos de resignar-nos, bom ou mau grado nosso, quando não consigamos evitá-lo. Desde que o mundo marcha, sem que a vontade de alguns possa detê-lo, o mais sensato é que o acompanhemos e nos acomodemos com o novo estado de coisas, em vez de nos agarrarmos ao passado que se esboroa, com o risco de sermos arrastados na queda.
 
-##### #️⃣ GEN-1-04-p17
+##### #️⃣ 09
+
+Por guardar respeito aos textos recebidos como sagrados, dever-se-ia obrigar a Ciência a calar-se? Fora tão impossível isso, como impedir que a Terra gire. As religiões, sejam quais forem, jamais ganharam coisa alguma em sustentar erros manifestos. A Ciência tem por missão descobrir as leis da natureza. Ora, sendo essas leis obra de Deus, não podem ser contrárias a religiões que se baseiem na verdade. Lançar anátema ao progresso, por atentatório à religião, é lançá-lo à própria obra de Deus. É ademais, trabalho inútil, porquanto nem todos os anátemas do mundo seriam capazes de obstar a que a Ciência avance e a que a verdade abra caminho. Se a Religião se nega a avançar com a Ciência, esta avançará sozinha.
+
+##### #️⃣ 10
+
+Somente as religiões estacionárias podem temer as descobertas da Ciência, as quais só são funestas às que se deixam distanciar pelas ideias progressistas, imobilizando-se no absolutismo de suas crenças. Elas, em geral, fazem tão mesquinha ideia da Divindade, que não compreendem que assimilar as leis da natureza, que a Ciência revela, é glorificar a Deus em suas obras. Na sua cegueira, porém, essas religiões preferem render homenagem ao Espírito do mal, atribuindo-lhe essas leis. Uma religião que não estivesse, por nenhum ponto, em contradição com as leis da natureza, nada teria que temer do progresso e seria invulnerável.
+
+##### #️⃣ 11
+
+A Gênese se divide em duas partes: a história da formação do mundo material e da humanidade considerada em seu duplo princípio, corporal e espiritual. A Ciência se tem limitado à pesquisa das leis que regem a matéria. No próprio homem, ela apenas há estudado o envoltório carnal. Por esse lado, chegou a inteirar-se, com exatidão, das partes principais do mecanismo do universo e do organismo humano. Assim, sobre esse ponto capital, pôde completar a Gênese de Moisés e retificar-lhe as partes defeituosas. Mas a história do homem, considerado como ser espiritual, se prende a uma ordem especial de ideias, que não são do domínio da Ciência propriamente dita e das quais, por este motivo, não tem ela feito objeto de suas investigações. A Filosofia, a cujas atribuições pertence, de modo mais particular, esse gênero de estudos, apenas há formulado, sobre o ponto, sistemas contraditórios, que vão desde a mais pura espiritualidade, até a negação do princípio espiritual e mesmo de Deus, sem outras bases, afora as ideias pessoais de seus autores. Tem, pois, deixado sem decisão a questão, por falta de verificação suficiente.
+
+##### #️⃣ 12
+
+Esta questão, no entanto, é a mais importante para o homem, por isso que envolve o problema do seu passado e do seu futuro. A do mundo material apenas indiretamente o afeta. O que lhe importa saber, antes de tudo, é donde ele veio e para onde vai, se já viveu e se ainda viverá, qual a sorte que lhe está reservada. Sobre todos esses pontos, a Ciência se conserva muda. A Filosofia apenas emite opiniões que concluem em sentido diametralmente oposto, mas que, pelo menos, permitem se discuta, o que faz com que muitas pessoas se lhe coloquem do lado, de preferência a seguirem a religião, que não discute.
+
+##### #️⃣ 13
+
+Todas as religiões são acordes quanto ao princípio da existência da alma, sem, contudo, o demonstrarem. Não o são, porém, nem quanto à sua origem, nem com relação ao seu passado e ao seu futuro, nem, principalmente, e isso é o essencial, quanto às condições de que depende a sua sorte vindoura. Em sua maioria, elas apresentam como o futuro da alma, e impõem à crença de seus adeptos, um quadro que somente a fé cega pode aceitar, visto que não suporta exame sério. Ligado aos seus dogmas, às ideias que nos tempos primitivos se faziam do mundo material e do mecanismo do universo, o destino que elas atribuem à alma não se concilia com o estado atual dos conhecimentos. Não podendo, pois, senão perder com o exame e a discussão, as religiões acham mais simples proscrever um e outra.
+
+##### #️⃣ 14
+
+Dessas divergências no tocante ao futuro do homem nasceram a dúvida e a incredulidade. Entretanto, a incredulidade dá lugar a um penoso vácuo. O homem encara com ansiedade o desconhecido em que tem fatalmente de penetrar. Gela-o a ideia do nada. Diz-lhe a consciência que alguma coisa lhe está reservada para além do presente. Que será? Sua razão, com o desenvolvimento que alcançou, já lhe não permite admitir as histórias com que o acalentaram na infância, nem aceitar como realidade a alegoria. Qual o sentido dessa alegoria? A Ciência lhe rasgou um canto do véu; não lhe revelou, porém, o que mais lhe importa saber. O homem interroga em vão, nada lhe responde ela de maneira peremptória e apropriada a lhe acalmar as apreensões. Por toda parte depara com a afirmação a se chocar com a negação, sem que de um lado ou de outro se apresentem provas positivas. Daí a incerteza, e a incerteza sobre o que concerne à vida futura faz que o homem se atire, tomado de uma espécie de frenesi, para as coisas da vida material. Esse o inevitável efeito das épocas de transição: rui o edifício do passado, sem que ainda o do futuro se ache construído. O homem se assemelha ao adolescente que, já não tendo a crença ingênua dos seus primeiros anos, ainda não possui os conhecimentos próprios da maturidade. Apenas sente vagas aspirações, que não sabe definir.
+
+##### #️⃣ 15
+
+Se a questão do homem espiritual permaneceu, até os dias atuais, em estado de teoria, é que faltavam os meios de observação direta, existentes para comprovar o estado do mundo material, conservando-se, portanto, aberto o campo às concepções do espírito humano. Enquanto o homem não conheceu as leis que regem a matéria e não pôde aplicar o método experimental, andou a errar de sistema em sistema, no tocante ao mecanismo do universo e à formação da Terra. O que se deu na ordem física, deu-se também na ordem moral. Para fixar as ideias, faltou o elemento essencial: o conhecimento das leis a que se acha sujeito o princípio espiritual. Estava reservado à nossa época esse conhecimento, como o esteve aos dois últimos séculos [^24] o das leis da matéria.
+
+[^24]: N.E.: Kardec se refere aos séculos XVII e XVIII.
+
+##### #️⃣ 16
+
+Até o presente, o estudo do princípio espiritual, compreendido na Metafísica, foi puramente especulativo e teórico. No Espiritismo, esse estudo é inteiramente experimental. Com o auxílio da faculdade mediúnica, mais desenvolvida presentemente e, sobretudo, generalizada e mais bem estudada, o homem se achou de posse de um novo instrumento de observação. A mediunidade foi, para o mundo espiritual, o que o telescópio foi para o mundo astral e o microscópio para o dos infinitamente pequenos. Permitiu se explorassem, estudassem, por assim dizer, de visu, [^25] as relações do mundo espiritual com o mundo corpóreo; que, no homem vivo, se destacasse do ser material o ser inteligente e que se observassem os dois a atuar separadamente. Uma vez estabelecidas relações com os habitantes do mundo espiritual, possível se tornou ao homem seguir a alma em sua marcha ascendente, em suas migrações, em suas transformações. Pode-se, enfim, estudar o elemento espiritual. Eis aí o de que careciam os anteriores comentadores da Gênese, para a compreenderem e lhe retificarem os erros.
+
+[^25]: N.E.: Do latim “de vista, por ter visto, por ter presenciado”.
+
+##### #️⃣ 17
+
+Estando o mundo espiritual e o mundo material em incessante contato, os dois são solidários um com o outro; ambos têm a sua parcela de ação na Gênese. Sem o conhecimento das leis que regem o primeiro, tão impossível seria constituir-se uma Gênese completa, quanto a um estatuário dar vida a uma estátua. Somente agora, conquanto nem a Ciência material, nem a Ciência espiritual hajam dito a última palavra, possui o homem os dois elementos próprios a lançar luz sobre esse imenso problema. Eram-lhe absolutamente indispensáveis essas duas chaves para chegar a uma solução, ainda que aproximativa.
 
 ### 📑 05 -  Antigos e modernos sistemas do mundo
 
