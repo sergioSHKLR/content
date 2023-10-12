@@ -1,14 +1,8 @@
 # 📓 A Gênese
 
-<<<<<<< HEAD
 ## 🗂️ 0. Pré-textual
 
-### Folha de rosto
-=======
-## 🗂️ 0 - Pré-textual
-
 ### 📑 Folha de rosto
->>>>>>> cd8db8f885ab77ebe08954b3650a7dafc4b1b54d
 
 Ética Espírita
 
