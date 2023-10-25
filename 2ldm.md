@@ -7,7 +7,6 @@
 |  |
 |:---:|
 Espiritismo Experimental
-<<<<<<< HEAD
 |  |
 | [✒️ **O Livro dos Médiuns**](https://pt.m.wikipedia.org/wiki/O_Livro_dos_Médiuns){:target="ext"} |
 |  |
@@ -22,22 +21,6 @@ Espiritismo Experimental
 | Modificado para o consumo digital por Sergio de |
 | ⭕ [shklr.org](https://shklr.org){:target="_blank"} |
 |  |
-=======
-
-[✒️ **O Livro dos Médiuns**](https://pt.m.wikipedia.org/wiki/O_Livro_dos_Médiuns)
-
-Ensino especial dos Espíritos sobre a teoria de todos os gêneros de manifestações, os meios de comunicação com o mundo invisível, o desenvolvimento da mediunidade, as dificuldades e os tropeços que se podem encontrar na prática do Espiritismo, constituindo o seguimento de 👻 [**O Livro dos Espíritos**](https://pt.m.wikipedia.org/wiki/O_Evangelho_segundo_o_Espiritismo).
-
-por [**Allan Kardec**](https://pt.m.wikipedia.org/wiki/Allan_Kardec).
-
-Tradução de [Guillon Ribeiro](https://pt.m.wikipedia.org/wiki/Guillon_Ribeiro)
-
-Baseado no original [ISBN 978-85-7328-729-5](http://www.febnet.org.br/wp-content/uploads/2014/05/Livro-dos-Mediuns_Guillon.pdf)
-
-Modificado para o consumo digital por Sergio de
-
-⭕ [shklr.org](https://shklr.org)
->>>>>>> 7f9fb499055cb9acc480f5e939b38abce4dee018
 
 ### 🗂️ Introdução
 
