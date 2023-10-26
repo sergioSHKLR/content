@@ -9273,6 +9273,10 @@ Se é certo que, entre os adeptos do Espiritismo, se contam os que divergem de o
 
 [^24]: N.E.: Frase atribuída ao filósofo grego **Sócrates** (470–399 a.C.)
 
+<<<<<<< HEAD
+[^25]: N.E.: Na 2ª impressão da 2ª edição de � O Livro dos Espíritos, as questões 1012 a 1019 correspondiam às questões 1011 a 1018 da 1ª impressão da mesma edição. Esta mudança nos leva à conclusão de que era propósito do autor identificar pelo nº 1011 a questão que se segue à de nº 1010 e que antecede a de nº 1012, o que nos parece perfeitamente lógico. Todavia, esta identificação permaneceu em aberto nas demais edições francesas publicadas quando Kardec estava encarnado. Visando a dar referência objetiva à questão, estamos atribuindo a esta pergunta o nº 1011, acreditando superar, com isso, o que entendemos não passar de um simples descuido de revisão gráfica.
+=======
 [^25]: N.E.: Na 2ª impressão da 2ª edição de 👻 **O Livro dos Espíritos**, as questões 1012 a 1019 correspondiam às questões 1011 a 1018 da 1ª impressão da mesma edição. Esta mudança nos leva à conclusão de que era propósito do autor identificar pelo nº 1011 a questão que se segue à de nº 1010 e que antecede a de nº 1012, o que nos parece perfeitamente lógico. Todavia, esta identificação permaneceu em aberto nas demais edições francesas publicadas quando Kardec estava encarnado. Visando a dar referência objetiva à questão, estamos atribuindo a esta pergunta o nº 1011, acreditando superar, com isso, o que entendemos não passar de um simples descuido de revisão gráfica.
+>>>>>>> 7f9fb499055cb9acc480f5e939b38abce4dee018
 
 [^26]: N.E.: Ver 👉 Nota explicativa.
