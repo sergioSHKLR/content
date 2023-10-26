@@ -4,23 +4,25 @@
 
 ### 🗂️ Folha de rosto
 
-Filosofia Espiritualista
-
-👻 [**O Livro dos Espíritos**](https://pt.m.wikipedia.org/wiki/O_Evangelho_segundo_o_Espiritismo)
-
-Princípios da Doutrina Espírita
-
-Sobre a imortalidade da alma, a natureza dos 👻 Espíritos e suas relações com os homens, as leis morais, a vida presente, a vida futura e o porvir da humanidade — segundo os ensinos dados por Espíritos superiores com o concurso de diversos médiuns.
-
-por [Allan Kardec](https://pt.m.wikipedia.org/wiki/Allan_Kardec).
-
-Tradução de [Guillon Ribeiro](https://pt.m.wikipedia.org/wiki/Guillon_Ribeiro)
-
-Baseado no original [ISBN 978-85-7328-728-8](http://www.febnet.org.br/wp-content/uploads/2014/05/Livro-dos-Espiritos.pdf)
-
-Modificado para o consumo digital por Sergio de  
-
-⭕ [shklr.org](https://shklr.org)
+|  |
+|:---:|
+| Filosofia Espiritualista |
+|  |
+| 👻 **O Livro dos Espíritos** |
+|  |
+| Princípios da Doutrina Espírita |
+|  |
+| Sobre a imortalidade da alma, a natureza dos **👻 Espíritos** e suas relações com os homens, as leis morais, a vida presente, a vida futura e o porvir da humanidade — segundo os ensinos dados por Espíritos superiores com o concurso de diversos médiuns. |
+|  |
+| por [Allan Kardec](https://pt.m.wikipedia.org/wiki/Allan_Kardec){:target="ext"}. |
+|  |
+| Tradução de [Guillon Ribeiro](https://pt.m.wikipedia.org/wiki/Guillon_Ribeiro){:target="ext"}. |
+|  |
+| Baseado no original ISBN 978-85-7328-728-8
+|  |
+| Modificado para o consumo digital por Sergio de |
+| ⭕ [shklr.org](https://shklr.org){:target="_blank"} |
+|  |
 
 ### 🗂️ Introdução
 
@@ -8212,7 +8214,11 @@ Concebemos toda a sabedoria desta máxima, porém a dificuldade está precisamen
 >
 > O conhecimento de si mesmo é, portanto, a chave do progresso individual. Direis, como há de alguém julgar-se a si mesmo? Não está aí a ilusão do amor-próprio para atenuar as faltas e torná-las desculpáveis? O avarento se considera apenas econômico e previdente; o orgulhoso julga que em si só há dignidade. Isto é muito real, mas tendes um meio de verificação que não pode iludir-vos. Quando estiverdes indecisos sobre o valor de uma de vossas ações, inquiri como a qualificaríeis, se praticada por outra pessoa. Se a censurais noutrem, não na podereis ter por legítima quando fordes o seu autor, pois que Deus não usa de duas medidas na aplicação de sua justiça. Procurai também saber o que dela pensam os vossos semelhantes e não desprezeis a opinião dos vossos inimigos, porquanto esses nenhum interesse têm em mascarar a verdade e Deus muitas vezes os coloca ao vosso lado como um espelho, a fim de que sejais advertidos com mais franqueza do que o faria um amigo. Perscrute, conseguintemente, a sua consciência aquele que se sinta possuído do desejo sério de melhorar-se, a fim de extirpar de si os maus pendores, como do seu jardim arranca as ervas daninhas; dê balanço no seu dia moral para, a exemplo do comerciante, avaliar suas perdas e seus lucros e eu vos asseguro que a conta destes será mais avultada que a daquelas. Se puder dizer que foi bom o seu dia, poderá dormir em paz e aguardar sem receio o despertar na outra vida.
 >
+<<<<<<< HEAD
+> Formulai, pois, de vós para convosco, questões nítidas e precisas e não temais multiplicá-las. Justo é que se gastem alguns minutos para conquistar uma felicidade eterna. Não trabalhais todos os dias com o fito de juntar haveres que vos garantam repouso na velhice? Não constitui esse repouso o objeto de todos os vossos desejos, o fim que vos faz suportar fadigas e privações temporárias? Pois bem! que é esse descanso de alguns dias, turbado sempre pelas enfermidades do corpo, em comparação com o que espera o homem de bem? Não valerá este outro a pena de alguns esforços? Sei haver muitos que dizem ser positivo o presente e incerto o futuro. Ora, esta exatamente a ideia que estamos encarregados de eliminar do vosso íntimo, visto desejarmos fazer que compreendais esse futuro, de modo a não restar nenhuma dúvida em vossa alma. Por isso foi que primeiro chamamos a vossa atenção por meio de fenômenos capazes de ferir-vos os sentidos e que agora vos damos instruções, que cada um de vós se acha encarregado de espalhar. Com este objetivo é que ditamos � O Livro dos Espíritos.
+=======
 > Formulai, pois, de vós para convosco, questões nítidas e precisas e não temais multiplicá-las. Justo é que se gastem alguns minutos para conquistar uma felicidade eterna. Não trabalhais todos os dias com o fito de juntar haveres que vos garantam repouso na velhice? Não constitui esse repouso o objeto de todos os vossos desejos, o fim que vos faz suportar fadigas e privações temporárias? Pois bem! que é esse descanso de alguns dias, turbado sempre pelas enfermidades do corpo, em comparação com o que espera o homem de bem? Não valerá este outro a pena de alguns esforços? Sei haver muitos que dizem ser positivo o presente e incerto o futuro. Ora, esta exatamente a ideia que estamos encarregados de eliminar do vosso íntimo, visto desejarmos fazer que compreendais esse futuro, de modo a não restar nenhuma dúvida em vossa alma. Por isso foi que primeiro chamamos a vossa atenção por meio de fenômenos capazes de ferir-vos os sentidos e que agora vos damos instruções, que cada um de vós se acha encarregado de espalhar. Com este objetivo é que ditamos 👻 **O Livro dos Espíritos**.
+>>>>>>> 7f9fb499055cb9acc480f5e939b38abce4dee018
 >
 > Santo Agostinho
 

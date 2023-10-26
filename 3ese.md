@@ -1,27 +1,28 @@
-# 📗 O Evangelho segundo o Espiritismo
+# 🕊️ O Evangelho segundo o Espiritismo
 
 ## 🗂️ 0. Pré-textual
 
 ### #️⃣ Folha de rosto
 
+|  |
+|:---:|
 Ética Espírita
-
-[📗 **O Evangelho segundo o Espiritismo**](https://pt.m.wikipedia.org/wiki/O_Evangelho_segundo_o_Espiritismo){:target="ext"}
-
-Com a explicação das máximas morais do Cristo em concordância com o Espiritismo e suas aplicações às diversas circunstâncias da vida.
-
-Fé inabalável só o é a que pode encarar frente a frente a razão, em todas as épocas da humanidade.
-
-por [**Allan Kardec**](https://pt.m.wikipedia.org/wiki/Allan_Kardec){:target="ext"}.
-
-Tradução de [Guillon Ribeiro](https://pt.m.wikipedia.org/wiki/Guillon_Ribeiro)
-{:target="ext"}
-
-Baseado no original [ISBN 978-85-7328-730-1](http://www.febnet.org.br/wp-content/uploads/2014/05/O-evangelho-segundo-o-espiritismo.pdf){:target="ext"}
-
-Modificado para o consumo digital por Sergio de
-
-[⭕ shklr.org](https://shklr.org)
+|  |
+[�️ **O Evangelho segundo o Espiritismo**](https://pt.m.wikipedia.org/wiki/O_Evangelho_segundo_o_Espiritismo){:target="ext"}
+|  |
+| Com a explicação das máximas morais do Cristo em concordância com o Espiritismo e suas aplicações às diversas circunstâncias da vida. |
+|  |
+| Fé inabalável só o é a que pode encarar frente a frente a razão, em todas as épocas da humanidade. |
+|  |
+| por [Allan Kardec](https://pt.m.wikipedia.org/wiki/Allan_Kardec){:target="ext"}. |
+|  |
+| Tradução de [Guillon Ribeiro](https://pt.m.wikipedia.org/wiki/Guillon_Ribeiro){:target="ext"}. |
+|  |
+| Baseado no original [ISBN 978-85-7328-730-1](http://www.febnet.org.br/wp-content/uploads/2014/05/O-evangelho-segundo-o-espiritismo.pdf){:target="ext"} |
+|  |
+| Modificado para o consumo digital por Sergio de |
+| ⭕ [shklr.org](https://shklr.org){:target="_blank"} |
+|  |
 
 ### 📑 Prefácio
 
@@ -93,7 +94,7 @@ A nossa opinião não passa, aos nossos próprios olhos, de uma opinião pessoal
 
 Na posição em que nos encontramos, a receber comunicações de perto de mil centros espíritas sérios, disseminados pelos mais diversos pontos da Terra, achamo-nos em condições de observar sobre que princípio se estabelece a concordância. Essa observação é que nos tem guiado até hoje e é a que nos guiará em novos campos que o Espiritismo terá de explorar. Porque, estudando atentamente as comunicações vindas tanto da França como do estrangeiro, reconhecemos, pela natureza toda especial das revelações, que ele tende a entrar por um novo caminho e que lhe chegou o momento de dar um passo para diante. Essas revelações, feitas muitas vezes com palavras veladas, hão frequentemente passado despercebidas a muitos dos que as obtiveram. Outros julgaram-se os únicos a possuí-las. Tomadas insuladamente, elas, para nós, nenhum valor teriam; somente a coincidência lhes imprime gravidade. Depois, chegado o momento de serem entregues à publicidade, cada um se lembrará de haver obtido instruções no mesmo sentido. Esse movimento geral, que observamos e estudamos, com a assistência dos nossos guias espirituais, é que nos auxilia a julgar da oportunidade de fazermos ou não alguma coisa.
 
-Essa verificação universal constitui uma garantia para a unidade futura do Espiritismo e anulará todas as teorias contraditórias. Aí é que, no porvir, se encontrará o critério da verdade. O que deu lugar ao êxito da doutrina exposta em [**📔 O Livro dos Espíritos**](./1lde.html) e em [**📙 O Livro dos Médiuns**](./2ldm.html) foi que em toda a parte todos receberam diretamente dos Espíritos a confirmação do que esses livros contêm. Se de todos os lados tivessem vindo os Espíritos contradizê-la, já de há muito haveriam aquelas obras experimentado a sorte de todas as concepções fantásticas. Nem mesmo o apoio da imprensa as salvaria do naufrágio, ao passo que, privadas como se viram desse apoio, não deixaram elas de abrir caminho e de avançar celeremente. É que tiveram o apoio dos Espíritos, cuja boa vontade não só compensou, como também sobrepujou o malquerer dos homens. Assim sucederá a todas as ideias que, emanando quer dos Espíritos, quer dos homens, não possam suportar a prova desse confronto, cuja força a ninguém é lícito contestar.
+Essa verificação universal constitui uma garantia para a unidade futura do Espiritismo e anulará todas as teorias contraditórias. Aí é que, no porvir, se encontrará o critério da verdade. O que deu lugar ao êxito da doutrina exposta em [**📔 O Livro dos Espíritos**](./1lde.html) e em [**✒️ O Livro dos Médiuns**](./2ldm.html) foi que em toda a parte todos receberam diretamente dos Espíritos a confirmação do que esses livros contêm. Se de todos os lados tivessem vindo os Espíritos contradizê-la, já de há muito haveriam aquelas obras experimentado a sorte de todas as concepções fantásticas. Nem mesmo o apoio da imprensa as salvaria do naufrágio, ao passo que, privadas como se viram desse apoio, não deixaram elas de abrir caminho e de avançar celeremente. É que tiveram o apoio dos Espíritos, cuja boa vontade não só compensou, como também sobrepujou o malquerer dos homens. Assim sucederá a todas as ideias que, emanando quer dos Espíritos, quer dos homens, não possam suportar a prova desse confronto, cuja força a ninguém é lícito contestar.
 
 Suponhamos praza a alguns Espíritos ditar, sob qualquer título, um livro em sentido contrário; suponhamos mesmo que, com intenção hostil, objetivando desacreditar a doutrina, a malevolência suscitasse comunicações apócrifas; que influência poderiam exercer tais escritos, desde que de todos os lados os desmentissem os Espíritos? É com a adesão destes que se deve garantir aquele que queira lançar, em seu nome, um sistema qualquer. Do sistema de um só ao de todos, medeia a distância que vai da unidade ao infinito. Que poderão conseguir os argumentos dos detratores, sobre a opinião das massas, quando milhões de vozes amigas, provindas do Espaço, se façam ouvir em todos os recantos do Universo e no seio das famílias, a infirmá-los? A esse respeito já não foi a teoria confirmada pela experiência? Que é feito das inúmeras publicações que traziam a pretensão de arrasar o Espiritismo? Qual a que nem lhe retardou a marcha? Até agora, não se considera a questão desse ponto de vista, sem contestação um dos mais graves. Cada um contou consigo, sem contar com os Espíritos.
 
@@ -191,13 +192,13 @@ Assim, ilude a si mesmo o homem que considera as coisas de modo terra a terra, d
 
 > Enquanto tivermos o nosso corpo e a alma se achar mergulhada nessa corrupção, nunca possuiremos o objeto dos nossos desejos: a verdade. Com efeito, o corpo nos suscita mil obstáculos pela necessidade em que nos achamos de cuidar dele. Ademais, ele nos enche de desejos, de apetites, de temores, de mil quimeras e de mil tolices, de maneira que, com ele, impossível se nos torna ser ajuizados, nem por um instante. Todavia se não nos é possível conhecer puramente coisa alguma enquanto a alma nos está ligada ao corpo, de duas uma: ou jamais conheceremos a verdade, ou só a conheceremos após a morte. Libertos da loucura do corpo, conversaremos então, lícito é esperá-lo, com homens igualmente libertos e conheceremos, por nós mesmos, a essência das coisas. Essa a razão por que os verdadeiros filósofos se exercitam em morrer e a morte não se lhes afigura, de modo nenhum, temível.
 
-Está aí o princípio das faculdades da alma obscurecidas por motivo dos órgãos corporais e o da expansão dessas faculdades depois da morte. Trata-se, porém, apenas de almas já depuradas; o mesmo não se dá com as almas impuras. (**📕 O Céu e o Inferno**, 1a Parte, cap. 2; 2a Parte, cap. 1.)
+Está aí o princípio das faculdades da alma obscurecidas por motivo dos órgãos corporais e o da expansão dessas faculdades depois da morte. Trata-se, porém, apenas de almas já depuradas; o mesmo não se dá com as almas impuras. (**🔥 O Céu e o Inferno**, 1a Parte, cap. 2; 2a Parte, cap. 1.)
 
 ##### #️⃣ 04
 
 > A alma impura, nesse estado, se encontra oprimida e se vê de novo arrastada para o mundo visível, pelo horror do que é invisível e imaterial. Erra, então, diz-se, em torno dos monumentos e dos túmulos, junto aos quais já se têm visto tenebrosos fantasmas, quais devem ser as imagens das almas que deixaram o corpo sem estarem ainda inteiramente puras, que ainda conservam alguma coisa da forma material, o que faz que a vista humana possa percebê-las. Não são as almas dos bons; são, porém, as dos maus, que se veem forçadas a vagar por esses lugares, onde arrastam consigo a pena da primeira vida que tiveram e onde continuam a vagar até que os apetites inerentes à forma material de que se revestiram as reconduzam a um corpo. Então, sem dúvida, retomam os mesmos costumes que durante a primeira vida constituíam objeto de suas predileções.
 
-Não somente o princípio da reencarnação se acha aí claramente expresso, mas também o estado das almas que se mantêm sob o jugo da matéria é descrito qual o mostra o Espiritismo nas evocações. Mais ainda: no tópico acima se diz que a reencarnação num corpo material é consequência da impureza da alma, enquanto as almas purificadas se encontram isentas de reencarnar. Outra coisa não diz o Espiritismo, acrescentando apenas que a alma, que boas resoluções tomou na erraticidade e que possui conhecimentos adquiridos, traz, ao renascer, menos defeitos, mais virtudes e ideias intuitivas do que tinha na sua existência precedente. Assim, cada existência lhe marca um progresso intelectual e moral. (📕 O Céu e o Inferno, 2a Parte: Exemplos.)
+Não somente o princípio da reencarnação se acha aí claramente expresso, mas também o estado das almas que se mantêm sob o jugo da matéria é descrito qual o mostra o Espiritismo nas evocações. Mais ainda: no tópico acima se diz que a reencarnação num corpo material é consequência da impureza da alma, enquanto as almas purificadas se encontram isentas de reencarnar. Outra coisa não diz o Espiritismo, acrescentando apenas que a alma, que boas resoluções tomou na erraticidade e que possui conhecimentos adquiridos, traz, ao renascer, menos defeitos, mais virtudes e ideias intuitivas do que tinha na sua existência precedente. Assim, cada existência lhe marca um progresso intelectual e moral. (🔥 O Céu e o Inferno, 2a Parte: Exemplos.)
 
 ##### #️⃣ 05
 
@@ -221,13 +222,13 @@ A palavra daïmon, da qual fizeram o termo demônio, não era, na Antiguidade, t
 
 > Se a alma é imaterial, tem de passar, após essa vida, a um mundo igualmente invisível e imaterial, do mesmo modo que o corpo, decompondo-se, volta à matéria. Muito importa, no entanto, distinguir bem a alma pura, verdadeiramente imaterial, que se alimente, como Deus, de ciência e pensamentos, da alma mais ou menos maculada de impurezas materiais, que a impedem de elevar-se para o divino e a retêm nos lugares da sua estada na Terra.
 
-Sócrates e Platão, como se vê, compreendiam perfeitamente os diferentes graus de desmaterialização da alma. Insistem na diversidade de situação que resulta para elas da sua maior ou menor pureza. O que eles diziam, por intuição, o Espiritismo o prova com os inúmeros exemplos que nos põe sob as vistas. (**📕 O Céu e o Inferno**, 2a Parte.)
+Sócrates e Platão, como se vê, compreendiam perfeitamente os diferentes graus de desmaterialização da alma. Insistem na diversidade de situação que resulta para elas da sua maior ou menor pureza. O que eles diziam, por intuição, o Espiritismo o prova com os inúmeros exemplos que nos põe sob as vistas. (**🔥 O Céu e o Inferno**, 2a Parte.)
 
 ##### #️⃣ 09
 
 > Se a morte fosse a dissolução completa do homem, muito ganhariam com a morte os maus, pois se veriam livres, ao mesmo tempo, do corpo, da alma e dos vícios. Aquele que guarnecer a alma, não de ornatos estranhos, mas com os que lhe são próprios, só esse poderá aguardar tranquilamente a hora da sua partida para o outro mundo.
 
-Equivale isso a dizer que o materialismo, com o proclamar para depois da morte o nada, anula toda responsabilidade moral ulterior, sendo, conseguintemente, um incentivo para o mal; que o mau tem tudo a ganhar do nada. Somente o homem que se despojou dos vícios e se enriqueceu de virtudes, pode esperar com tranquilidade o despertar na outra vida. Por meio de exemplos, que todos os dias nos apresenta, o Espiritismo mostra quão penoso é, para o mau, o passar desta à outra vida, a entrada na vida futura. (**📕 O Céu e o Inferno**, 2a Parte, cap. 1.)
+Equivale isso a dizer que o materialismo, com o proclamar para depois da morte o nada, anula toda responsabilidade moral ulterior, sendo, conseguintemente, um incentivo para o mal; que o mau tem tudo a ganhar do nada. Somente o homem que se despojou dos vícios e se enriqueceu de virtudes, pode esperar com tranquilidade o despertar na outra vida. Por meio de exemplos, que todos os dias nos apresenta, o Espiritismo mostra quão penoso é, para o mau, o passar desta à outra vida, a entrada na vida futura. (**🔥 O Céu e o Inferno**, 2a Parte, cap. 1.)
 
 ##### #️⃣ 10
 
